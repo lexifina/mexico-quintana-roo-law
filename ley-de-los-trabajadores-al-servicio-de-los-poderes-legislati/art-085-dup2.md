@@ -1,0 +1,1 @@
+ARTICULO 85 (SIC).- Las remuneraciones que se paguen a los directivos y empleados de los sindicatos y en general todos los gastos que origine el funcionamiento de estos serán a cargo de su presupuesto, cubierto en todo caso por sus miembros.
