@@ -1,0 +1,7 @@
+P.O. 31 DE DICIEMBRE DE 1992.
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Quintana Roo.
+SEGUNDO.- El Consejo Directivo dispondrá lo necesario para expedir el nuevo Reglamento Interno del mismo, así como el Reglamento de Cuotas y Tarifas aplicables para cada uno de los servicios que preste la Comisión de Agua Potable y Alcantarillado, sus Organismos Operadores y/o los particulares autorizados o concesionarios en los términos y condiciones que en la presente Ley se establecen.
+TERCERO.- En tanto la Comisión expida las cuotas y tarifas que correspondan por derechos de conexión, reconexión, consumo y otros del servicio público de agua potable y alcantarillado, se seguirán aplicando por los Organismos Operadores las cuotas o tarifas autorizadas por las Legislaturas del Estado, con las normas relativas para su actualización.
+Se exceptúa de lo dispuesto en este Artículo a las cuotas de mejoras por obras públicas de infraestructura hidráulica o similares, aprobadas por el Congreso del Estado, las cuales se seguirán cobrando en los términos de Ley.
+CUARTO.- Los usuarios del servicio público de agua potable y alcantarillado en el Estado, que estén descargando aguas residuales a sistemas de alcantarillado como consecuencia de actividades productivas, deberán solicitar y tramitar el permiso de descarga a que se refiere la presente Ley durante el año de 1992 y el primer semestre de 1993.
+QUINTO.- Se derogan todas las disposiciones que se opongan al presente decreto.
