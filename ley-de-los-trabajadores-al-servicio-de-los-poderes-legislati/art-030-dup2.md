@@ -1,1 +1,0 @@
-ARTICULO 30.- Las horas extraordinarias de trabajo se pagarán con un ciento por ciento más del salario asignado a las horas de la jornada ordinaria.
