@@ -1,3 +1,3 @@
-(REFORMADO, P.O. 12 DE DICIEMBRE DE 1980)
-ARTICULO 52 BIS.- Para la elección de los nueve Diputados electos según el principio de votación mayoritaria relativa, la Comisión Estatal Electoral hará la demarcación territorial correspondiente en distritos electorales uninominales.
-Para la elección de los tres Diputados según en principio de representación proporcional, el Estado constituirá una circunscripción electoral plurinominal.
+(REFORMADO, P.O. 29 DE JULIO DE 1983)
+ARTICULO 52 BIS.- Para la elección de los once Diputados electos según el principio de votación mayoritaria relativa, la Comisión Estatal Electoral hará la demarcación territorial correspondiente en Distritos Electorales Uninominales.
+Para la elección de los cuatro Diputados según el principio de Representación Proporcional, el Estado constituirá una Circunscripción Electoral Plurinominal.
