@@ -1,0 +1,1 @@
+ARTICULO 5I.- Dentro de los plazos fijados en el Artículo 36 de esta Ley, los propietarios o poseedores de predios, giros o establecimientos obligados a hacer uso del servicio público de agua potable y alcantarillado, deberán presentar un escrito solicitando la instalación de la toma en la forma que señala esta Ley y sus disposiciones reglamentarias.
