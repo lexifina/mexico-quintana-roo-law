@@ -1,0 +1,1 @@
+ARTICULO PRIMERO.- Queda abrogada la Ley de Asistencia Social y Privada para el Estado de Quintana Roo de fecha 23 de Diciembre de mil novecientos ochenta y seis, publicada en el Periódico Oficial el 31 del mismo mes y año.
