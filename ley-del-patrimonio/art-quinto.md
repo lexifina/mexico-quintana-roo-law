@@ -1,0 +1,1 @@
+Artículo Quinto.- Las Dependencias y Entidades que tengan en posesión, custodia y administración, reservas territoriales del dominio del Poder Ejecutivo Estatal, deberán transferirlas al Instituto, de acuerdo con los lineamientos y el calendario de entrega-recepción que al efecto se determinen.

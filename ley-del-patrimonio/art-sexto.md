@@ -1,0 +1,2 @@
+Artículo Sexto.- Los asuntos que con motivo de esta Ley, deban pasar de una Institución Pública a otra, permanecerán en el último trámite que hubieren alcanzado, hasta que las unidades administrativas que los despachen se incorporen a la que señala el mismo; a excepción de aquellos urgentes o sujetos a término, los cuales se atenderán por las instituciones que las venían despachando.
+Hasta en tanto no se cree el Instituto, la Oficialía Mayor continuará desarrollando sus funciones relacionadas con los bienes inmuebles del dominio del Gobierno del Estado.
