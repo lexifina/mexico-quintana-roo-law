@@ -1,0 +1,4 @@
+P.O. 13 DE DICIEMBRE DE 1996.
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- Inmediatamente que entre en vigor el presente Decreto, los trabajadores de los Poderes Legislativo y Judicial, por convocatoria previa de los Titulares de cada uno de estos Poderes, procederán conforme a lo dispuesto por los Artículos 78 al 87 de la Ley de los Trabajadores al Servicio de los Poderes Legislativo, Ejecutivo y Judicial, de los Ayuntamientos y Organismos Descentralizados del Estado de Quintana Roo, a organizar sus respectivos sindicatos, de acuerdo al procedimiento establecido en la propia Ley.
+TERCERO.- El actual Sindicato Unico de los Trabajadores al Servicio del Gobierno del Estado, mantendrá la titularidad de las relaciones laborales únicamente con el Poder Ejecutivo.
