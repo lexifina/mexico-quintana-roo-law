@@ -1,0 +1,1 @@
+Artículo Tercero.- Se abroga el Decreto número 96, por el que se crea la Comisión de Derechos Humanos del Estado de Quintana Roo, publicado en el Periódico Oficial del Gobierno del Estado el día 30 de septiembre del año 1992.

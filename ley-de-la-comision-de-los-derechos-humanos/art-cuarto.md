@@ -1,0 +1,1 @@
+Artículo Cuarto.- Los funcionarios que actualmente se encuentran en el desempeño de sus cargos dentro de la Comisión, cuya designación compete a la Legislatura, continuarán en los mismos durante el tiempo para el cual fueron designados.
