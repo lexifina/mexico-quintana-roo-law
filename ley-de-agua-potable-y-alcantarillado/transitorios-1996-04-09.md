@@ -1,0 +1,5 @@
+P.O. 9 DE ABRIL DE 1996.
+PRIMERO.- El presente decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Las atribuciones conferidas a la actual Unidad de Recuperación Fiscal CAPAHACIENDA, quedan conferidas a la Dirección de Recuperación de Adeudos y Ejecución Fiscal, dependiente de la Comisión de Agua Potable y Alcantarillado, el traspaso se hará incluyendo el personal a su servicio, sin perjuicio de sus derechos laborales, el mobiliario, los vehículos, instrumentos, aparatos, archivos y en general el equipo que dicha Unidad haya venido usando para la atención de los asuntos que tuvo encomendados.
+TERCERO.- Los asuntos en trámite a cargo de la Unidad de Recuperación Fiscal CAPAHACIENDA, serán continuados precisamente en el trámite en que se encuentren, por la Dirección de Recuperación de Adeudos y Ejecución Fiscal, dependiente de la Comisión de Agua Potable y Alcantarillado.
+CUARTO.- Se derogan todas las disposiciones que se opongan al presente decreto.

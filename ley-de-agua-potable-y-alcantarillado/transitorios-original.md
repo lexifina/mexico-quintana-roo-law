@@ -9,15 +9,15 @@ ARTICULO SEPTIMO.- Los derechos por suministros, conexiones, tomas de agua, dren
 ARTICULO OCTAVO.- Los expedientes instruídos por los organismos existentes que por razón de la competencia establecida deban pasar a los Organismos Operadores, se entregarán a éstos por los responsables de su trámite anterior, al entrar en vigor esta Ley.
 ARTICULO NOVENO.- Los Sistemas de Agua Potable y Alcantarillado que se construyan en el futuro de acuerdo con convenios de cooperación que el Ejecutivo del Estado celebre con la SAHOP, el COPLAMAR u otras Dependencias u Organismos de la Federación, serán entregados para su administración y operación a la Comisión de Agua Potable y Alcantarillado del Estado, la cual asumirá las obligaciones económicas que le correspondan, conforme a los lineamientos que establezcan los convenios respectivos.
 SALON DE SESIONES DEL PODER LEGISLATIVO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS VEINTINUEVE DIAS DEL MES DE SEPTIEMBRE DE MIL NOVECIENTOS OCHENTA Y UNO.
-DIPUTADO PRESIDENTE.
+DIPUTADO PRESIDENTE
 PROFR. TERENCIO TAH QUETZAL
-DIPUTADA SECRETARIA.
+DIPUTADA SECRETARIA
 PROFRA. EVA FANY QUIJANO KINI
 DADO EN LA RESIDENCIA DEL PODER EJECUTIVO, EN LA CIUDAD DE CHETUMAL CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS TREINTA DIAS DEL MES DE SEPTIEMBRE DEL AÑO DE MIL NOVECIENTOS OCHENTA Y UNO.
-EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
 LIC. PEDRO JOAQUIN COLDWELL
-EL SECRETARIO DE GOBIERNO.
+EL SECRETARIO DE GOBIERNO
 ING. MARIO E. VILLANUEVA MADRID
-EL SECRETARIO DE OBRAS PUBLICAS Y DESARROLLO URBANO.
+EL SECRETARIO DE OBRAS PUBLICAS Y DESARROLLO URBANO
 ING. JUAN JOSE CALZADA MARRUFO
 N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
