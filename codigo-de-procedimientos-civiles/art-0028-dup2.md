@@ -1,0 +1,1 @@
+Artículo 28.- En caso necesario, previa orden especial y escrita del juez, se podrán practicar cateos y romper cerraduras en cuanto fuere indispensable para encontrar bienes bastantes.

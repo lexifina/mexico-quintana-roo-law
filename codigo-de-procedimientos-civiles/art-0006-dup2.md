@@ -1,0 +1,3 @@
+Artículo 6o.- Cuando el juez de paz o menor recibiere inhibitoria de otro juzgado en que se promueva competencia por razón de la cuantía y creyere debido sostener la suya, el mismo día lo comunicará así al competidor y remitirá su expediente con el oficio inhibitorio sin necesidad de informe especial al Tribunal Superior de Justicia del Estado.
+El Tribunal Superior de Justicia del Estado o el Juez de Primer Instancia, sin otro trámite, decidirán la competencia en una audiencia que se celebrará dentro de los tres días siguientes al recibo de los documentos y a la cual será citado el Ministerio Público sin que sea necesaria su asistencia para que se verifique la vista.
+Emplazamiento y citaciones

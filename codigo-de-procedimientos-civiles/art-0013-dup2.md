@@ -1,0 +1,2 @@
+Artículo 13.- El actuario o policía que entregue la cita recogerá, en una libreta especial, recibo de ella, el cual, si no supiere firmar la persona que debiera hacerlo, será firmado por alguna otra presente en su nombre, asentándose en la libreta a quién se haya hecho la entrega y el motivo.
+En el juzgado habrá el número necesario de libretas para que puedan llevar una cada encargado de entregar citas.

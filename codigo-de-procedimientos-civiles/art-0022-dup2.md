@@ -1,0 +1,1 @@
+Artículo 22.- Debe el juez observar escrupulosamente lo dispuesto por el artículo 143 de este Código, aún en negocios mercantiles. No se impondrán multas por temeridad. Los gastos de ejecución serán a cargo del condenado.

@@ -1,0 +1,2 @@
+Artículo 34.- Si la sentencia condena a hacer, el juez señalará al que fue condenado, un plazo prudente para el cumplimiento y se estará en todo a lo dispuesto en el artículo 471 de este Código.
+Si el hecho consistiere en el otorgamiento de un contrato o la celebración de un acto jurídico, el juez lo ejecutará en rebeldía del condenado.

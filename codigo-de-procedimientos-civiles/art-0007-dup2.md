@@ -1,0 +1,3 @@
+Artículo 7o.- A petición del actor se citará al demandado para que comparezca dentro del noveno día. En la cita que en presencia del actor será expedida y entregada a la persona que debe llevarla se expresará por lo menos el nombre del actor, lo que demande, la causa de la demanda, la hora que se señale para el juicio y la advertencia de que las pruebas se presentarán en la misma audiencia.
+Debe llevarse en los juzgados de paz o menores un libro de registro en que se asentarán por días y meses los nombres de actores y demandados y el objeto de las demandas:
+Puede el actor presentar su demanda por escrito.

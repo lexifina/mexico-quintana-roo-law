@@ -1,0 +1,1 @@
+Artículo 17.- Si al anunciarse el despacho del negocio no estuviere presente el actor y sí el demandado, se dará por concluido el procedimiento, perdiendo todo el derecho para poder intentar la acción que ejercitó salvo que demostrare el impedimento de caso fortuito o fuerza mayor que no le permitió presentarse a continuar el juicio.

@@ -1,0 +1,2 @@
+Artículo 14.- En los casos a que se refiere el artículo 10, el recibo se firmará por la persona a quien se hiciere la citación. Si no supiere firmar o no pudiere, lo hará a su ruego un testigo; si no quisiere firmar o presentar testigos que lo hagan, firmará el testigo requerido al efecto por el notificador. Este testigo no puede negarse bajo multa de un día de salario mínimo.
+En la libreta se asentará la razón de lo ocurrido.

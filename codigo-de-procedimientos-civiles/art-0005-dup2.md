@@ -1,0 +1,3 @@
+Artículo 5o.- Cada juzgado conocerá de los negocios relativos a predios ubicados dentro de su demarcación, cuando se trate de arrendamiento o de acciones reales sobre bienes inmuebles.
+Conocerá también de aquellos en que el demandado sea citado en lugar que se encuentre comprendido también en la demarcación.
+En caso de duda será competente por razón del territorio el juez de paz o menor que haya prevenido y en ningún caso se dará entrada a cuestión relativa a competencia de jurisdicción por aquel concepto; el hecho de haber conocido indebidamente de casos correspondientes a otras demarcaciones, será motivo de corrección disciplinaria que impondrá el Presidente del Tribunal Superior de Justicia.
