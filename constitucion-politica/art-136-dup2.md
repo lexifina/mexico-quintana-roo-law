@@ -1,15 +1,17 @@
-(REFORMADO PRIMER PARRAFO, P.O. 21 DE NOVIEMBRE DE 1983)
-ARTICULO 160.- Son facultades y obligaciones del Ayuntamiento:
+(REFORMADO PRIMER PARRAFO, P.O. 30 DE SEPTIEMBRE DE 1992)
+ARTICULO 136 (SIC).- Son facultades y obligaciones del Ayuntamiento:
 I.- Cumplir y hacer cumplir las leyes, decretos y disposiciones federales, estatales y municipales.
 (REFORMADA, P.O. 31 DE MARZO DE 1983)
 II.- Expedir su Reglamento Interior los Gubernativos y de policía, de acuerdo a las bases normativas establecidas en la Ley Orgánica Municipal.
 III.- Convocar a elecciones extraordinarias para cubrir las vacantes de sus miembros en los términos de esta Constitución y de la Ley Electoral.
 IV.- Nombrar y remover al secretario y tesorero, a propuesta del presidente municipal.
 V.- Conceder licencias a sus miembros hasta por treinta días y convocar a quienes deban suplirlos.
-VI.- (DEROGADA, P.O. 21 DE NOVIEMBRE DE 1983)
+(REFORMADA, P.O. 30 DE SEPTIEMBRE DE 1992)
+VI.- Establecer en el Territorio del Municipio las Alcaldías, Delegacionales y Subdelegacionales necesarias y fijarles sus atribuciones, obligaciones y recursos presupuestales anuales correspondientes.
 (REFORMADA, P.O. 21 DE NOVIEMBRE DE 1983)
 VII.- Mantener los servicios de Seguridad Pública y Tránsito Municipal de conformidad al contenido de la Fracción VIII del Artículo 163.
-VIII.- Establecer en el territorio del municipio las delegaciones y subdelegaciones necesarias.
+(REFORMADA, P.O. 30 DE SEPTIEMBRE DE 1992)
+VIII.- Remover a los integrantes de las Alcadías (sic) de acuerdo a las disposiciones aplicables.
 IX.- Cooperar con las autoridades federales y estatales en las funciones de su competencia y planes de desarrollo dentro del municipio.
 X.- Proceder conforme a la Ley sobre Monumentos y Zonas Arqueológicas, Artísticas, e Históricas con auxilio del Instituto correspondiente, para ordenar la suspensión provisional de las obras de restauración y conservación de bienes declarados monumentos, y que se ejecuten sin la autorización o permiso correspondiente.
 XI.- Promover el mejoramiento de los servicios y acrecentamiento del patrimonio municipal.
