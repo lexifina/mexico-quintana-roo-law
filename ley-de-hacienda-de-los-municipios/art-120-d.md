@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2002)
+Artículo 120-D.- Las personas físicas o morales que requieran del servicio especial, lo solicitarán por escrito ante las Oficinas de las Tesorerías Municipales indicando número de personal requerido, fecha de inicio y terminación del convenio, domicilio donde se prestará el servicio, nombre y denominación o razón social del solicitante, domicilio del mismo.
