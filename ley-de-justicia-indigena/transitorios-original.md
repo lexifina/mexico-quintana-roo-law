@@ -1,0 +1,14 @@
+TRANSITORIOS
+Artículo Primero.- La presente Ley entrará en vigor el día de su publicación en el Periódico Oficial del Gobierno del Estado.
+Artículo Segundo.- En tanto el Tribunal Superior de Justicia designa a los magistrados o los órganos que atiendan las inconformidades que se presenten en contra de las actuaciones de los jueces tradicionales, el Tribunal designará a uno de sus magistrados, quien resolverá las inconformidades en los términos que establece la presente Ley.
+Artículo Tercero.- La presente Ley deberá difundirse en los idiomas español y maya, particularmente en la zona centro de la entidad.
+SALON DE SESIONESA(SIC) DEL H. PODER LEGISLATIVO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS SEIS DIAS DEL MES DE AGOSTO DE MIL NOVECIENTOS NOVENTA Y SIETE.
+DIPUTADO PRESIDENTE
+IVAN SANTOS ESCOBAR
+DIPUTADO SECRETARIO
+FRANCISCO NOVELO ORDOÑEZ
+EN CUMPLIMIENTO DE LO DISPUESTO EN EL ARTICULO 91 FRACCION II, DE LA CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO, Y PARA SU DEBIDA OBSERVANCIA, MANDO SE PUBLIQUE EN EL PERIÓDICO OFICIAL DEL GOBIERNO DEL ESTADO, DADO EN LA RESIDENCIA DEL PODER EJECUTIVO EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS SIETE DIAS DEL MES DE AGOSTO DE MIL NOVECIENTOS NOVENTA Y SIETE.
+EL C. GOBERNADOR CONSTITUCIONAL DEL ESTADO DE QUINTANA ROO
+ING. MARIO E. VILLANUEVA MADRID
+EL C. SECRETARIO GENERAL DE GOBIERNO.
+DR. HECTOR ESQUILIANO SOLIS.
