@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE ABRIL DE 1998)
+ARTICULO 13 bis.- Le corresponde a la Secretaría de Salud del Gobierno del Estado, ejercer las funciones contempladas en la Ley Orgánica de la Administración Pública del Estado y en esta Ley; y por su parte a los Servicios Estatales de Salud le corresponde ejercer las funciones operativas contempladas en su Decreto de creación y en esta Ley, sin perjuicio de la coordinación de acciones que pudiesen tener ambas dependencias gubernamentales.
