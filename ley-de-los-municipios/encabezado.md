@@ -1,0 +1,10 @@
+LEY DE LOS MUNICIPIOS DEL ESTADO DE QUINTANA ROO
+Ley publicada en el Número Extraordinario del Periódico Oficial del Estado de Quintana Roo, el lunes 20 de diciembre de 2004.
+DECRETO NÚMERO: 139. LEY DE LOS MUNICIPIOS DEL ESTADO DE QUINTANA ROO.
+LA HONORABLE X LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
+D E C R E T A:
+LEY DE LOS MUNICIPIOS DEL ESTADO DE QUINTANA ROO.
+Título Primero
+Disposiciones Generales
+Capítulo I
+Del Objeto de la Ley
