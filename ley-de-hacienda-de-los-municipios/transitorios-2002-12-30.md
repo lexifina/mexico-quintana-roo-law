@@ -32,4 +32,6 @@ SEGUNDO.- El presente decreto entrará en vigor a partir del 1° de Enero del a�
 TERCERO: Para la determinación del Impuesto Predial en el ejercicio fiscal 2003, en el Municipio de Cozumel, se aplicará la tabla del cálculo anual del mencionado impuesto, siendo el siguiente:
 TABLA PARA EL CALCULO ANUAL DEL IMPUESTO PREDIAL 2003
 (VEASE ARCHIVO ANEXO)
-ARTICULO CUARTO.- Se derogan las disposiciones dictadas con anterioridad que se opongan al presente decreto.
+(REFORMADO [N. DE E. ADICIONADO], P.O. 15 DE ABRIL DE 2003)
+ARTICULO CUARTO.- Por esta única ocasión la tasa aplicable para el pago del impuesto predial respecto de predios edificados en zonas urbanas, cuyo valor sea de $5,001.00 en adelante, exclusivamente del Municipio de Othón P. Blanco, contenida en el inciso b) de la Fracción II del Artículo 13 de la Ley de Hacienda de los Municipios del Estado, será de 10.5 al millar, cobrando vigencia a partir del día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado y por todo el ejercicio fiscal del año 2003.
+ARTICULO QUINTO.- Se derogan las disposiciones dictadas con anterioridad que se opongan al presente decreto.
