@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2003)
+ARTÍCULO 34-BIS.- Para los efectos de este capítulo, cuando el enajenante, persona física o moral, sea un fraccionador, desarrollador o urbanizador inmobiliario, estará obligado a remitir a la Tesorería Municipal, copia de los contratos de promesa de compraventa y cesiones de derecho, a mas tardar dentro de los 30 días naturales siguientes a la fecha de su celebración.

@@ -1,0 +1,6 @@
+(ADICIONADO CON EL ARTICULO QUE LO INTEGRA, P.O. 16 DE DICIEMBRE DE 2003)
+CAPITULO XXIV
+DE LA VERIFICACION, CONTROL Y FISCALIZACION DE OBRA PUBLICA
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2003)
+ARTÍCULO 129-BIS.- Por la verificación, control y fiscalización que las leyes en la materia encomiendan a las Contralorías Municipales y al Órgano Superior de Fiscalización del Estado, los contratistas con quienes se celebren los contratos de Obra Pública Municipal o para los servicios relacionados con la misma, cuyo financiamiento se realice con recursos propios o con empréstitos otorgados directamente a los Municipios, pagarán un derecho equivalente al 5 al millar sobre el importe de cada una de las estimaciones de trabajo.
+Las Tesorerías Municipales al hacer el pago de las estimaciones de obra que le corresponda, detendrán el derecho a que se refiere el párrafo anterior y registrara el 50 por ciento de todo lo recaudado por este concepto a favor de la partida presupuestal de la respectiva Contraloría Municipal para su aplicación a gastos inherentes a sus operaciones de verificación y control de la Obra Pública Municipal. El otro 50 por ciento de todo lo recaudado por este concepto será transferido por las Tesorerías Municipales al Órgano Superior de Fiscalización del Estado, el cual lo integrará al Fondo para el Fortalecimiento de la Fiscalización Superior.
