@@ -1,0 +1,4 @@
+P.O. 28 DE DICIEMBRE DE 2001.
+PRIMERO.- El presente decreto entrará en vigor a partir del día primero del mes de Enero del año dos mil dos, previa publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- Se derogan todas las disposiciones dictadas con anterioridad que se opongan al presente decreto.
+TERCERO.- Por esta única ocasión la tasa aplicable para el pago del impuesto predial respecto de predios edificados en zonas urbanas, cuyo valor sea de $5001.00 en adelante, exclusivamente del Municipio de Othón P. Blanco, contenido en el inciso b) de la fracción II del artículo 13, de la Ley de Hacienda de los municipios, será de 10.5 al millar, cobrando vigencia a partir del día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado y por todo el ejercicio fiscal del año 2002.
