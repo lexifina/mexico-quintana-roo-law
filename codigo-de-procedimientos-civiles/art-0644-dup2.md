@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 13 DE ENERO DE 1995)
+Artículo 644-.O- La cédula hipotecaria contendrá una relación sucinta de la escritura y concluirá en los términos: "En virtud de las constancias que proceden, queda sujeta la finca...... de la propiedad de ...... a juicio hipotecario, lo que se hace saber a las autoridades y al público, para que no se practique en la mencionada finca ningún embargo, toma de posesión, diligencia precautoria o cualquiera otra que entorpezca el curso del presente juicio o viole los derechos en él adquiridos por el C. (Aquí el nombre del actor).
