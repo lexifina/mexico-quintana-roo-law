@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- En tanto se expidan las disposiciones administrativas derivadas de esta Ley, seguirán en vigor las que rigen actualmente, en lo que no la contravengan, y sus referencias a la Ley de Salud que se abroga, se entienden hechas a la presente Ley.

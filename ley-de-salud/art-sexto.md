@@ -1,0 +1,1 @@
+ARTICULO SEXTO.- Continuarán en vigor los acuerdos de coordinación para la integración orgánica y la descentralización operativa de los servicios de salud, así como a la descentralización de funciones en materia de control y regulación sanitaria, en lo que no se oponga a lo dispuesto por la Ley General de Salud y la presente Ley.
