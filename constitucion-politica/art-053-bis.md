@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PARRAFO, P.O. 29 DE JULIO DE 1983)
-ARTICULO 53 BIS.- La elección de los cuatro Diputados según el principio de Representación Proporcional en la Circunscripción plurinominal, se sujetará a las bases generales siguientes y a lo que en particular disponga la ley reglamentaria.
+(REFORMADO PRIMER PARRAFO, P.O. 9 DE NOVIEMBRE DE 1989)
+ARTICULO 53 BIS.- La elección de los cinco Diputados según el principio de Representación Proporcional en la Circunscripción plurinominal, se sujetará a las bases generales siguientes y a lo que en lo particular disponga la Ley Reglamentaria.
 (ADICIONADA, P.O. 4 DE AGOSTO DE 1978)
 I. Para obtener el registro de sus listas, el partido político que lo solicite, deberá acreditar que participa con candidatos a diputados por mayoría relativa en cuando menos seis de los distritos electorales uninominales.
 (ADICIONADA, P.O. 4 DE AGOSTO DE 1978)
