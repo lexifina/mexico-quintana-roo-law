@@ -1,0 +1,14 @@
+ARTÍCULOS TRANSITORIOS
+PRIMERO.- La presente Ley entrará en vigor el día de su publicación en el Periódico Oficial del Gobierno del Estado de Quintana Roo.
+SEGUNDO.- Dentro del plazo de seis meses, contados a partir de la entrada en vigor de la presente Ley, el Titular del Ejecutivo Estatal, en el ámbito de su competencia, deberá expedir las disposiciones reglamentarias y constituir los órganos que señala esta Ley.
+TERCERO.- Se concede un plazo de seis meses, a partir de la entrada en vigor de la presente Ley, a los Ayuntamientos de los Municipios del Estado, para que en el ámbito de las facultades conferidas en esta Ley, expidan las disposiciones reglamentarias en materia de fomento de la cultura y preservación del Patrimonio Cultural.
+SALÓN DE SESIONES DEL HONORABLE PODER LEGISLATIVO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS TRECE DIAS DEL MES DE DICIEMBRE DEL AÑO DOS MIL SIETE.
+DIPUTADO PRESIDENTE:
+DR. JUAN M. CHANG MEDINA.
+DIPUTADO SECRETARIO:
+LIC. JUAN C. PALLARES BUENO.
+CON FUNDAMENTO EN LO DISPUESTO POR LOS ARTÍCULO 91, FRACCIÓN II Y 93, AMBOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO Y PARA SU DEBIDA OBSERVANCIA, MANDO SE PUBLIQUE EN EL PERIÓDICO OFICIAL DEL GOBIERNO DEL ESTADO, EL DECRETO NÚMERO 264 QUE CONTIENE LA LEY DE CULTURA Y LAS ARTES DEL ESTADO DE QUINTANA ROO. EXPEDIDO POR LA HONORABLE XI LEGISLATURA DEL ESTADO A LOS TRECE DÍAS DEL MES DE DICIEMBRE DEL AÑO DOS MIL SIETE. DADO EN LA RESIDENCIA DEL PODER EJECUTIVO DEL ESTADO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS DIECISIETE DÍAS DEL MES DE DICIEMBRE DEL AÑO DOS MIL SIETE.
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO DE QUINTANA ROO.
+LIC. FELIX ARTURO GONZÁLEZ CANTO
+LA SECRETARIA DE GOBIERNO DEL ESTADO DE QUINTANA ROO
+ROSARIO ORTIZ YELADAQUI.
