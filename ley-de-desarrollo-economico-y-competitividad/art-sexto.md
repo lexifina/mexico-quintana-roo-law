@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO.- El Ejecutivo del Estado, dentro del término de 120 días contados a partir de la entrada en vigor de la presente Ley, deberá emitir el Decreto de creación del Fondo para el Desarrollo Económico de Quintana Roo, bajo las siglas "FODEQROO" con el fin de dar cumplimiento a lo establecido en el Artículo 45 de esta Ley.
