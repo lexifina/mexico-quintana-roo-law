@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Catastro del Estado de Quintana Roo, publicada en el Periódico Oficial del Estado el 29 de noviembre de 1975, su única reforma publicada en el Periódico Oficial del Estado el 30 septiembre de 1987; así como, todas las disposiciones y demás ordenamientos que se opongan a lo dispuesto por la presente Ley.
