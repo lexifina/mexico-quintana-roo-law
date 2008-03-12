@@ -7,8 +7,7 @@ Hecha la designación de los representantes del Gobierno del Estado y de los tra
 ARTICULO CUARTO.- Los sindicatos a que se refiere esta Ley, deberán constituirse en un plazo no mayor de ciento veinte días a partir de la iniciación de la vigencia de la presente Ley. Para ello, tanto el Ejecutivo del Estado, como los Ayuntamientos, en un término que no excederá de treinta días a partir de la entrada en vigor de esta Ley, publicará la Convocatoria correspondiente.
 ARTICULO QUINTO.- Las Comisiones Mixtas de Escalafón, deberán integrarse dentro de los ciento veinte días siguientes a la iniciación de vigencia de esta Ley, y los proyectos de sus reglamentos deberán formularse y presentarse para su aprobación al Tribunal de Conciliación y Arbitraje, dentro de los ciento veinte días siguientes a su integración.
 DADO en el Salón de Sesiones de la H. II Legislatura Constitucional, en la ciudad de Chetumal, capital del Estado de Quintana Roo, a los veintitrés días del mes de mayo de mil novecientos setenta y ocho.
-DIPUTADO PRESIDENTE
-EN FUNCIONES.
+DIPUTADO PRESIDENTE EN FUNCIONES.
 SEBASTIAN UC YAM.
 Firmado.
 DIPUTADA SECRETARIA.
