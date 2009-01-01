@@ -4,6 +4,6 @@ ZONA "A".- Se referirá a los municipios de José María Morelos, Felipe Carrill
 (REFORMADO, P.O. 16 DE DICIEMBRE DE 2003)
 ZONA "B".- Se referirá a los municipios de Othón P. Blanco, e Isla Mujeres.
 (REFORMADO, P.O. 12 DE DICIEMBRE DE 2008)
-Zona C.- Se referirá a los municipios de Benito Juárez, Solidaridad, Cozumel y Tulum.
+ZONA "C".- Se referirá a los municipios de Benito Juárez, Solidaridad, Cozumel y Tulum.
 (REFORMADO, P.O. 16 DE DICIEMBRE DE 2003)
 S.M.G.- Salario Mínimo General Vigente diario en el Estado de Quintana Roo.
