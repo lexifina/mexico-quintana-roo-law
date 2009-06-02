@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO.- Los asuntos en la materia y la substanciación de los recursos pendientes, al inicio de la vigencia de la presente Ley, se sujetarán a las formas y procedimientos de los ordenamientos que les dieron origen.

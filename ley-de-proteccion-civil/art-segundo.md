@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Se abroga la Ley del Sistema Estatal de Protección Civil, expedida por la Honorable VI Legislatura del Estado mediante decreto 106, publicado en el Periódico Oficial del Gobierno del Estado en fecha 30 de noviembre de 1992.

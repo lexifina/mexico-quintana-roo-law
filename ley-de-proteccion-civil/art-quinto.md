@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- El Consejo Estatal de Protección Civil y los Consejos Municipales correspondientes, serán reestructurados conforme a las disposiciones legales aplicables, en un plazo de cuatro meses contados a partir de la entrada en vigor del Reglamento que al efecto expida el Gobernador del Estado.
