@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 30 DE JUNIO DE 2009)
+ARTICULO 172-TER.- Comete el delito de adopción ilegal quién facilite, instrumente, colabore, gestione y/o consienta para que una persona menor de edad sea dada en adopción sin que se cumplan las disposiciones legales estatales, federales y/o los tratados internacionales de los que México sea parte, lo que será sancionado con pena de dos a seis años de prisión y multa de 400 a 500 días de salario mínimo.
+Si se tratare de un funcionario público, se duplicará la pena y se le castigará a éste con destitución e inhabilitación para desempeñar el cargo o comisión o cualquiera otro de carácter público o similar, hasta por un tiempo igual a la pena impuesta, sin exceptuar las sanciones establecidas en la Ley de Responsabilidades de los Servidores Públicos aplicables.
+Si hubiera mediado una retribución económica y/o de otro tipo, se aumentará la pena hasta tres años de prisión más a quién la hubiera solicitado, pagado, o aceptado.
