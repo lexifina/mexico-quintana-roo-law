@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 18 DE SEPTIEMBRE DE 2009)
+Artículo 38-Bis.- En la vía incidental se atenderá la pretensión de nuevo escrutinio y cómputo de las elecciones de que conozca el Tribunal, y solamente procederá cuando el nuevo escrutinio y cómputo no haya sido desahogado, sin causa justificada, en la sesión de cómputo correspondiente en los términos de lo dispuesto en la Ley Electoral.
+El Tribunal deberá establecer si las inconsistencias pueden ser corregidas o subsanadas con algunos otros datos o elementos que obren en el expediente o puedan ser requeridos por el propio Tribunal sin necesidad de recontar los votos.
+No procederá el incidente en el caso de casillas en las que se hubiere realizado nuevo escrutinio y cómputo en la sesión de cómputo respectiva.
+En el caso de que el resultado del nuevo escrutinio y cómputo modifique los resultados, el Tribunal tomará las medidas necesarias para que se expidan los documentos que acreditan a quienes hayan resultado como candidatos electos, una vez que haya causado estado la resolución.
