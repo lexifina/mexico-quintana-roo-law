@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 18 DE SEPTIEMBRE DE 2009)
+Artículo 886-Ter.- Los incidentes se decidirán con un escrito de cada parte y sin suspensión del procedimiento. Si se promueve prueba, deberá ofrecerse en los escritos respectivos, fijando los puntos sobre los que verse, y se citará dentro de ocho días, para audiencia indiferibles, en que se reciba, se oigan brevemente las alegaciones, y se dicte la resolución dentro de los tres días siguientes.
