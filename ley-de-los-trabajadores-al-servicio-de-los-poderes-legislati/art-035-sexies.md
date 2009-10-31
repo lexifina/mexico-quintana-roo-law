@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE OCTUBRE DE 2009)
+ARTICULO 35-SEXIES.- La mujer trabajadora tendrá derecho de una semana de descanso con el pago de salario íntegro en los casos de interrupción del embarazo por aborto natural espontáneo o clínico, mientras que el hombre trabajador tendrá derecho a dos días de descanso con el pago de salario íntegro si su esposa o concubina se encontrase en los supuestos mencionados.

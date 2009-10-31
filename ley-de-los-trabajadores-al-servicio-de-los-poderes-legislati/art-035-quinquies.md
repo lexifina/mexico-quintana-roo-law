@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE OCTUBRE DE 2009)
+ARTICULO 35-QUINQUIES.- Las licencias de maternidad y de paternidad se conceden independientemente de las vacaciones establecidas o demás días de descanso obligatorio que se estipulen en la presente ley. Si el correspondiente turno vacacional coincidiere o quedare comprendido dentro de este periodo, dicho turno empezará a correr al día siguiente de la fecha en que concluya la licencia respectiva.
