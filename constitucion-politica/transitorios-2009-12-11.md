@@ -1,0 +1,3 @@
+P.O. 11 DE DICIEMBRE DE 2009.
+DECRETO NO. 197, POR EL QUE SE REFORMA EL PARRAFO TERCERO DE LA FRACCION II DEL ARTICULO 49 DE LA CONSTITUCION POLITICA DEL ESTADO DE QUINTANA ROO.
+PRIMERO.- El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
