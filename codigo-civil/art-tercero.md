@@ -1,0 +1,1 @@
+Artículo Tercero.- En los casos no previstos en el presente Reglamento Interior, y en los que se presente controversia en cuanto a su aplicación y observancia, el Titular de La Oficina resolverá lo conducente.

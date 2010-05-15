@@ -1,0 +1,1 @@
+Artículo Cuarto.- Para las cuestiones no previstas en este Reglamento Interior, respecto de los Departamentos y Áreas y demás funciones del personal, se estará a lo dispuesto por el manual de organización de La Oficina.

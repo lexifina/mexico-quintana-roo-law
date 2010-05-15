@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 18 DE ABRIL DE 2007)
-Artículo 2299 BIS.- No estará obligado a la reparación del daño moral quien ejerza sus derechos de opinión, crítica, expresión e información, en los términos y con las limitaciones de los artículos 6 y 7 de la Constitución Política de los Estados Unidos Mexicanos.
-En ningún caso se considerarán ofensas al honor las opiniones desfavorables de la crítica literaria, artística, histórica, científica o profesional. Tampoco se considerarán ofensivas las opiniones desfavorables realizadas en cumplimiento de un deber o ejerciendo un derecho cuando el modo de proceder o la falta de reserva no tenga un propósito ofensivo.

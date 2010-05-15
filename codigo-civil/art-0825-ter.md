@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2007)
-Artículo 825 TER.- Regirán al concubinato todos los derechos y obligaciones inherentes a la familia, en lo que le fueren aplicables.
-El concubinato genera entre los concubinos derechos alimentarios y sucesorios, independientemente de los demás derechos y obligaciones reconocidos en este código o en otras leyes.

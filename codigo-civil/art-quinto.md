@@ -1,0 +1,1 @@
+Artículo Quinto.- En tanto se expide el Manual de Organización respectivo, el Titular de La Oficina resolverá las incidencias de procedimiento y operación, que se originen por la aplicación de este ordenamiento legal.

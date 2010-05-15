@@ -1,0 +1,9 @@
+P.O. 5 DE JULIO DE 2017.
+[N. DE E. TRANSITORIOS DE LA "PUB. NO. 1948-A-2017 REGLAMENTO INTERIOR DE LA OFICINA DEL GOBERNADOR".]
+Artículo Primero. El presente Reglamento Interior entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo. Se abroga el Reglamento Interior de la Oficina del Gobernador publicado mediante Periódico Oficial No. 392, 3ª. Sección, Tomo III, de fecha 03 de octubre de 2012, publicación No. 3456-A-2012-A, así como todas las disposiciones administrativas de igual o menor jerarquía que se opongan al presente Reglamento Interior.
+Artículo Tercero. En los casos no previstos en el presente Reglamento Interior, y en los que se presente controversia en cuanto a su aplicación y observancia, el Titular de la Oficina resolverá lo conducente.
+Artículo Cuarto. Para las cuestiones no previstas en este Reglamento Interior, respecto de los Departamentos y Áreas y demás funciones del personal, se estará a lo dispuesto por el manual de organización de la Oficina.
+Artículo Quinto. En tanto se expide el Manual de Organización respectivo, el Titular de la Oficina resolverá las incidencias de procedimiento y operación, que se originen por la aplicación de este ordenamiento legal.
+Artículo Sexto. La Oficina de la Gubernatura del Estado, deberá establecer, controlar y evaluar el Programa Interno de Protección Civil para el personal, instalaciones, bienes e información, observando las normas necesarias para la operación, desarrollo y vigilancia del Programa que establezca la Ley de Protección Civil del Estado de Chiapas.
+Artículo Séptimo. En cumplimiento a lo dispuesto por el artículo 8°, de la Ley Orgánica de la Administración Pública del Estado de Chiapas, publíquese el presente Reglamento Interior en el Periódico Oficial del Estado.

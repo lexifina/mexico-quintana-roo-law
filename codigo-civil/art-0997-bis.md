@@ -1,6 +1,0 @@
-(ADICIONADO, P.O. 18 DE SEPTIEMBRE DE 2009)
-Artículo 997 BIS.- Los que ejercen la patria potestad, aun cuando no tengan la custodia, tienen el derecho de convivencia con sus descendientes, salvo que exista peligro para estos.
-No podrán impedirse, sin justa causa, las relaciones personales entre el menor y sus parientes. En caso de oposición, a petición de cualquiera de ellos, el juez de lo familiar resolverá lo conducente en atención al interés superior del menor. Sólo por mandato judicial podrá limitarse, suspenderse o perderse el derecho de convivencia a que se refiere el párrafo anterior, así como en los casos de suspensión o pérdida de la patria potestad, conforme a las modalidades que para su ejercicio se establezca en el convenio o resolución judicial.
-El juez de los (sic) familiar aplicará las medidas previstas en el Código de Procedimientos Civiles e incluso podrá decretar el cambio de guarda y custodia de los menores previo el procedimiento respectivo, cuando quien tenga decretada judicialmente la custodia provisional o definitiva de ellos, realice conductas reiteradas para evitar la convivencia de los menores con la persona o personas que tengan reconocido judicialmente su derecho a la misma.
-CAPITULO SEGUNDO
-De los efectos de la patria potestad
