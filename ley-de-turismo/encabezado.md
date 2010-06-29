@@ -1,0 +1,8 @@
+LEY DE TURISMO DEL ESTADO DE QUINTANA ROO
+Ley publicada en el Extraordinario del Periódico Oficial del Estado de Quintana Roo, el lunes 28 de junio de 2010.
+DECRETO NÚMERO: 290
+CONTIENE LA LEY DE TURISMO DEL ESTADO DE QUINTANA ROO.
+LA HONORABLE XII LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
+DECRETA:
+ÚNICO.- Se expide la Ley de Turismo del Estado de Quintana Roo, para quedar como sigue:
+LEY DE TURISMO DEL ESTADO DE QUINTANA ROO
