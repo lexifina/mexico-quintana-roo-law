@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE JUNIO DE 2010)
+ARTICULO 157 O.- El Secretario de Salud del Estado, proporcionará al Consejo Estatal de Trasplantes, la información en materia de donaciones, trasplantes y lista de pacientes en espera de un órgano, tejido o célula en el Estado, contenida en el Registro Estatal de Donadores de Quintana Roo y en coordinación con el Registro Nacional de Trasplantes, se deberá integrar a la lista nacional de donadores, para que en su caso pueda cumplirse con la voluntad de las personas que han decidido donar sus órganos, tejidos o células.

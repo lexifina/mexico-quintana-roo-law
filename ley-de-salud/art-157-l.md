@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE JUNIO DE 2010)
+ARTICULO 157 L.- El Patronato para la Donación y Trasplantes de Órganos, Tejidos y celulas, procurará la más amplia participación de la comunidad para apoyar con recursos financieros y materiales, las actividades propiamente médicas y quirúrgicas en materia de trasplante de órganos y tejidos, así como las de capacitación, información, difusión y mejoramiento de las instalaciones de las Instituciones que participen en el programa estatal de trasplantes.
