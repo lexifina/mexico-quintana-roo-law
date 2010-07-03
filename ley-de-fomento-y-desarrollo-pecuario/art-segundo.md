@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Fomento Ganadero del Estado Libre y Soberano de Quintana Roo, publicada en el Periódico Oficial del Estado de fecha 2 de enero de 1977 y todas las disposiciones que se opongan al presente Decreto.
