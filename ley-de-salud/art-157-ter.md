@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE AGOSTO DE 2010)
+ARTICULO 157 ter.- Los procedimientos penales y, en su caso, la ejecución de las penas y medidas de seguridad por los delitos a que se refiere este Capítulo, se regirán por las leyes del Estado en la materia, salvo en los casos del destino y destrucción de narcóticos y la clasificación de los delitos como graves para fines del otorgamiento de la libertad provisional bajo caución, en los cuales se observarán las disposiciones del Código Federal de Procedimientos Penales.

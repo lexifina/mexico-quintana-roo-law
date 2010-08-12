@@ -1,2 +1,12 @@
 (ADICIONADO, P.O. 30 DE ABRIL DE 1998)
 ARTICULO 13 bis.- Le corresponde a la Secretaría de Salud del Gobierno del Estado, ejercer las funciones contempladas en la Ley Orgánica de la Administración Pública del Estado y en esta Ley; y por su parte a los Servicios Estatales de Salud le corresponde ejercer las funciones operativas contempladas en su Decreto de creación y en esta Ley, sin perjuicio de la coordinación de acciones que pudiesen tener ambas dependencias gubernamentales.
+(ADICIONADO, P.O. 9 DE AGOSTO DE 2010)
+Para el tratamiento de los farmacodependientes se contará con un centro especializado en tratamiento, atención y rehabilitación, con base en sistemas modernos de tratamiento y rehabilitación, fundamentados en el respeto a la integridad y a la libre decisión del farmacodependiente.
+(ADICIONADO, P.O. 9 DE AGOSTO DE 2010)
+El Ejecutivo del Estado coadyuvará con la Secretaría de Salud Federal en la ejecución del Programa Nacional para la Prevención y Tratamiento de la Farmacodependencia, mismo que será obligatorio en todos los establecimientos de los sectores público, privado y social que realicen actividades preventivas, de tratamiento y de control de las adicciones y la farmacodependencia.
+(ADICIONADO, P.O. 9 DE AGOSTO DE 2010)
+Las campañas de información y sensibilización que reciba la población deberán estar basadas en estudios científicos y alertar de manera adecuada sobre los efectos y daños físicos y psicológicos del consumo de estupefacientes y psicotrópicos.
+(ADICIONADO, P.O. 9 DE AGOSTO DE 2010)
+De conformidad con el Programa Nacional para la Prevención y Tratamiento de la Farmacodependencia, corresponde al Ejecutivo Estatal:
+I. Promover y llevar a cabo campañas permanentes de información y orientación al público, para la prevención de daños a la salud provocados por el consumo de estupefacientes y psicotrópicos; Asimismo fomentará la educación e instrucción a la familia y a la comunidad sobre la forma de reconocer los síntomas de la farmacodependencia y adoptar las medidas oportunas para su prevención y tratamiento. La información que reciba la población deberá estar basada en estudios científicos y alertar de manera clara sobre los efectos y daños físicos y psicológicos del consumo de estupefacientes y psicotrópicos; y
+II. Proporcionar información y brindar la atención médica y los tratamientos que se requieran a las personas que consuman estupefacientes y psicotrópicos.
