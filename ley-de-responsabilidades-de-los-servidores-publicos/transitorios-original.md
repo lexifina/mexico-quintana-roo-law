@@ -5,7 +5,7 @@ ARTICULO TERCERO.- Se derogan todas aquellas disposiciones que se opongan a lo e
 ARTICULO CUARTO.- La Legislatura del Estado, establecerá dentro de su estructura orgánica, en un plazo no mayor de 180 días, los órganos competentes a que hacen referencia los artículos 52, 53 y 83 de esta Ley.
 ARTICULO QUINTO.- Los procedimientos y recursos que se hayan iniciado bajo la vigencia de la Ley de Responsabilidades de los Servidores Públicos que se abroga, se tramitarán y resolverán conforme a las disposiciones de dicha Ley.
 ARTICULO SEXTO.- Los procedimientos de juicio político que se hayan iniciado antes de la vigencia de esta Ley se tramitarán y resolverán conforme a las disposiciones de la Ley Orgánica del Poder Legislativo del Estado.
-ARTICULO SEPTIMO.- En tanto se establezca una Ley de Procedimiento Administrativo que coadyuve con el procedimiento establecido en esta Ley, se estará a la suplencia del Código Civil y de Procedimientos Civiles vigentes en el Estado.
+ARTICULO SEPTIMO.- (DEROGADO, P.O. 5 DE NOVIEMBRE DE 2010)
 SALON DE SESIONES DEL HONORABLE PODER LEGISLATIVO, EN LA CIUDAD CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS CATORCE DIAS DEL MES DE AGOSTO DEL AÑO DOS MIL DOS.
 DIPUTADA PRESIDENTA: DIPUTADO SECRETARIO:
 (EN FUNCIONES)
