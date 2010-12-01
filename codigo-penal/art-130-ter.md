@@ -2,7 +2,7 @@
 CAPITULO V
 HOSTIGAMIENTO SEXUAL
 (REFORMADO PRIMER PARRAFO, P.O. 30 DE NOVIEMBRE DE 2010)
-ARTICULO 130 TER- A quien asedie o acose sexualmente a persona de cualquier sexo o solicite favores de naturaleza sexual, para sí o para un tercero, valiéndose de su posición jerárquica derivada de relaciones laborales, docentes, domésticas o cualquier otra que implique una posición de poder, de autoridad o ambas del activo para con el pasivo, se le impondrá de uno a dos años de prisión y de trescientos a quinientos días multa.
+ARTICULO 130 TER.- A quien asedie o acose sexualmente a persona de cualquier sexo o solicite favores de naturaleza sexual, para sí o para un tercero, valiéndose de su posición jerárquica derivada de relaciones laborales, docentes, domésticas o cualquier otra que implique una posición de poder, de autoridad o ambas del activo para con el pasivo, se le impondrá de uno a dos años de prisión y de trescientos a quinientos días multa.
 (REFORMADO, P.O. 30 DE NOVIEMBRE DE 2010)
 Cuando el hostigamiento sexual se cometa contra una persona menor de dieciocho años de edad, o con alguna discapacidad, o que no tenga la capacidad de comprender el significado del hecho, o por cualquier causa no pueda resistirlo, la pena de prisión se aumentará hasta en una tercera parte de la prevista en el párrafo anterior y se perseguirá de oficio.
 (ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2007)
