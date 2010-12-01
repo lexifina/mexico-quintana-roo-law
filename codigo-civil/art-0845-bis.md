@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE MAYO DE 2010)
+Artículo 845 BIS.-Toda persona que tenga conocimiento sobre la necesidad de otro de recibir alimentos y pueda aportar los datos de quiénes estén obligados a proporcionarlos, podrá solicitar Únicamente la intervención del Ministerio Público o el Juez de lo Familiar de manera indistinta, a efecto de que dichos funcionarios, en uso de sus facultades resuelvan lo que en derecho corresponda.
