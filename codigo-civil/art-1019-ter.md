@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2007)
-Artículo 1019 TER.- El padre y la madre, aunque pierdan la patria potestad quedan sujetos a todas las obligaciones que tienen para con sus hijos.
+(REFORMADO, P.O. 10 DE DICIEMBRE DE 2010)
+Artículo 1019 TER.- El padre y la madre, aunque pierdan la patria potestad quedan sujetos a todas las obligaciones de crianza que tienen para con sus hijos.

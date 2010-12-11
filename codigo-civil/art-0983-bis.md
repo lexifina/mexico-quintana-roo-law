@@ -1,2 +1,3 @@
-(ADICIONADO, P.O. EL 15 DE JULIO DE 2004)
-Artículo 983 BIS.- Los integrantes de la familia tienen derecho a que los demás miembros les respeten su integridad física y psíquica, con objeto de contribuir a su sano desarrollo para su plena incorporación y participación en el núcleo social. Al efecto, contará con la asistencia y protección de las Instituciones Públicas de acuerdo con las leyes.
+(REFORMADO, P.O. 10 DE DICIEMBRE DE 2010)
+Artículo 983 BIS.- Toda persona tiene derecho a un medio ambiente adecuado para su· desarrollo y bienestar. Consecuentemente los integrantes de la familia tienen derecho a que los demás miembros les respeten su integridad física, psicoemocional, sexual, y económica, libre de conductas de violencia familiar, con objeto de contribuir a su sano desarrollo para su plena incorporación y participación en el núcleo social. Al efecto, contará con la asistencia y protección de las Instituciones Públicas de acuerdo con la Ley de Asistencia y Prevención de Violencia Familiar del Estado de Quintana Roo.
+Asimismo, en los Casos de Violencia Familiar, quedan prohibidos todo tipo de procedimientos de Conciliación y Mediación, para su resolución.
