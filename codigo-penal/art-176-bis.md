@@ -1,7 +1,7 @@
-(REFORMADA SU DENOMINACION, P.O. 30 DE NOVIEMBRE DE 2010)
+(REFORMADA SU DENOMINACIÓN, P.O. 30 DE NOVIEMBRE DE 2010)
 CAPITULO VIII
 VIOLENCIA FAMILIAR
-(REFORMADO PRIMER PARRAFO, P.O. 30 DE NOVIEMBRE DE 2010)
+(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE NOVIEMBRE DE 2010)
 ARTICULO 176 BIS.- Se entiende por violencia familiar el acto u omisión intencional realizado con el fin de dominar, someter o controlar, produciendo violencia física, psicológica, sexual, económica, patrimonial o moral a cualquiera de las personas señaladas en las fracciones del artículo 176 Ter del presente Código, dentro o fuera del domicilio familiar, independientemente de que pueda o no producir otro delito. Para los efectos de este Capítulo se entiende por:
 Para los efectos de este Capítulo se entiende por:
 (REFORMADO, P.O. 30 DE NOVIEMBRE DE 2010)

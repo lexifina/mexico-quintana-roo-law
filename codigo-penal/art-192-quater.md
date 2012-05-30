@@ -1,4 +1,4 @@
-(ADICIONADA CON LOS ARTICULOS QUE LA INTEGRAN, P.O. 20 DE OCTUBRE DE 2006)
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 20 DE OCTUBRE DE 2006)
 TURISMO SEXUAL INFANTIL
 (ADICIONADO, P.O. 20 DE OCTUBRE DE 2006)
 ARTICULO 192-QUÁTER.- Comete el delito de turismo sexual quien financie, promueva, publicite, invite, facilite o gestione por cualquier medio para que una persona viaje al interior o exterior del territorio del Estado de Quintana Roo con la finalidad de que realice cualquier tipo de actos sexuales reales o simulados con una o varias personas menores de dieciocho años de edad o que no tengan la capacidad de comprender el significado del hecho.

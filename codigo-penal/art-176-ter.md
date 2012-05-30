@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 27 DE NOVIEMBRE DE 2007)
+(REFORMADO PRIMER PÁRRAFO, P.O. 27 DE NOVIEMBRE DE 2007)
 ARTICULO 176-TER.- Comete el delito de violencia familiar el que realice cualquier acto u omisión de los señalados en el artículo anterior y ocurra en agravio de:
 (ADICIONADA, P.O. 30 DE JUNIO DE 2006)
 I.- Su cónyuge;

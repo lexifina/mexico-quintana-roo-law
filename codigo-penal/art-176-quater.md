@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 30 DE NOVIEMBRE DE 2010)
+(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE NOVIEMBRE DE 2010)
 ARTICULO 176 QUÁTER. Al que cometa el delito de violencia familiar se le impondrá de seis meses a cinco años de prisión, pérdida de la patria potestad o pérdida de la custodia, de los derechos hereditarios y de alimentos, y en su caso a juicio del juez, prohibición de ir a una circunscripción territorial determinada o de residir en ella; y si de la comisión de la violencia familiar resultare como consecuencia la comisión de otro u otros delitos tipificados por este Código, se aplicarán las reglas del concurso de que se trate.
 (REFORMADO, P.O. 30 DE NOVIEMBRE DE 2010)
 Asimismo, se sujetará al activo del delito a participar en servicios reeducativos integrales, especializados y gratuitos; y a tratamiento psicoterapéutico reeducativo para corregir las conductas de violencia familiar, hasta por el mismo tiempo de duración de la pena de prisión
