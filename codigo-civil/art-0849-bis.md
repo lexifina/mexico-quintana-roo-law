@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 14 DE MAYO DE 2010)
-Artículo 849 BIS.- Los menores, las personas con capacidades diferentes, los sujetos a estado de interdicción y el cónyuge que se dedique al hogar, gozan de la presunción de necesitar alimentos.
+(REFORMADO, P.O. 30 DE OCTUBRE DE 2012)
+Artículo 849 BIS.- Los menores, las personas con alguna discapacidad que le impida adquirir por sus propios medios algún trabajo, los sujetos a estado de interdicción y el cónyuge que se dedique al hogar gozan de la presunción de necesitar alimentos. Salvo que se demuestre lo contrario.

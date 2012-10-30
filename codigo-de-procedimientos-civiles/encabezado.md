@@ -1,4 +1,4 @@
-CODIGO DE PROCEDIMIENTOS CIVILES PARA EL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO
+CÓDIGO DE PROCEDIMIENTOS CIVILES PARA EL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO
 Código publicado en el Periódico Oficial del Estado de Quintana Roo, el jueves 8 de enero de 1981.
 CIUDADANO LICENCIADO JESUS MARTINEZ ROSS, Gobernador Constitucional del Estado, a sus habitantes sabed:
 Que la H. II Legislatura Constitucional del Estado ha tenido a bien expedir el siguiente:
