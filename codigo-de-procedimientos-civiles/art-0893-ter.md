@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 30 DE NOVIEMBRE DE 2012)
+Artículo 893-Ter.- Todas las promociones que se tengan que presentar por escrito tendrán que realizarse ante el Administrador de Gestión Judicial, mismo que dará cuenta al Juez de Instrucción o de oralidad, según sea el caso.
+El Administrador de Gestión Judicial tendrá a su cargo un fedatario, mismo que será el que realice el cotejo de los documentos que se presenten ante él, y las certificaciones correspondientes; así mismo dependerán de él los notificadores que serán los encargados de llevar a cabo las notificaciones ordenadas por los jueces de instrucción y de oralidad.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE NOVIEMBRE DE 2012)
+Artículo 893-Bis.- El procedimiento en términos de lo dispuesto en este título estará a cargo de un Juez de Instrucción y de un Juez oral, el primero tendrá bajo su cargo la recepción, análisis, admisión de la demanda, contestación, reconvención, contestación a la misma en su caso, así como las diversas promociones presentadas que no tengan que ventilarse en la audiencia oral y las que se presenten en ejecución de sentencia. El Juez Oral presidirá las audiencias inicial y de juicio, dictando la sentencia correspondiente.

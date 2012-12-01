@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 30 DE NOVIEMBRE DE 2012)
+Artículo 949-Bis.- El Juez Oral le dará el uso de la voz al conciliador adscrito al juzgado oral, quien de una manera breve expondrá a las partes los beneficios de llegar a un acuerdo conciliatorio. Si las partes aceptan la propuesta del conciliador, el Juez Oral deberá suspender la audiencia, hasta por dos horas, con la finalidad de que se proceda a la salida alterna propuesta, pasando a la sala de conciliación contigua al juzgado oral.
+Una vez transcurrido el término que se les concedió a las partes para conciliar o antes si el conciliador así lo determina, lo hará del conocimiento del Juez Oral para que éste reanude la audiencia inicial.
+Si las partes lograron un acuerdo conciliatorio, el conciliador, haciendo uso de la palabra, pondrá a consideración del Juez Oral las cláusulas del citado convenio, con la finalidad de que el citado juzgador analice las mismas; y si estuviera de acuerdo con el convenio, será aprobado y elevado a la categoría de sentencia ejecutoriada, decretando en consecuencia el archivo definitivo del expediente.
+La ejecución del convenio, en caso de incumplimiento, estará a cargo del Juez de Instrucción.
+En caso de que no existiera convenio alguno, se procederá de inmediato a continuar con la audiencia.
