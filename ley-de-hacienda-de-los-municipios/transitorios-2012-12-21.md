@@ -1,0 +1,5 @@
+P.O. 21 DE DICIEMBRE DE 2012.
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO.- Se deroga cualquier disposición que contravenga a lo dispuesto en el presente decreto.
+TERCERO.- Los derechos a que se refiere el artículo 113 de la Ley de Hacienda del Municipio de Benito Juárez, del Estado de Quintana Roo, entrarán en vigor a partir del día 1 de enero de 2013, para lo cual el Tesorero Municipal deberá efectuar la publicación del acuerdo precisado en el penúltimo párrafo de dicho artículo, a más tardar, el 31 de enero de ese año; en tanto, continuarán vigentes en el Municipio de Benito Juárez, las disposiciones contenidas en los artículos 116, 117, 118 y 119 de la Ley de Hacienda de los Municipios del Estado de Quintana Roo.
+CUARTO.- Se deroga en la Ley de Hacienda de los Municipios del Estado de Quintana Roo, toda referencia realizada respecto del Municipio de Benito Juárez, con la salvedad realizada en el artículo Tercero Transitorio de este Decreto.
