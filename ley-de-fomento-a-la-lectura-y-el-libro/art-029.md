@@ -1,0 +1,1 @@
+Artículo 29 (Sic). El programa contendrá, al menos, un diagnóstico estatal de la lectura y promoción de libros en el Estado; la definición de objetivos del fomento a la lectura y el libro; estrategias para el desarrollo de la lectura y producción literaria; y metas y acciones para el fomento a la lectura y el libro.

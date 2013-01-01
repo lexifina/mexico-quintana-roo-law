@@ -1,0 +1,1 @@
+Artículo 32 (Sic). Bajo la figura del Depósito Legal, las y los editores integrarán el patrimonio bibliográfico del Estado mediante la entrega de dos ejemplares uno en versión digital y otro impreso de las obras que editen bajo su responsabilidad. Todas deberán contener la ficha catalográfica o en su defecto el ISBN.

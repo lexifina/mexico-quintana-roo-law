@@ -1,0 +1,2 @@
+Artículo 34 (Sic). La Biblioteca Pública Central "Javier Rojo Gómez", ubicada en la Capital del Estado, será considerada Biblioteca Depositaria y tendrá bajo su guarda, custodia y preservación el material que reciban en Depósito Legal, poniéndolo a disposición de la ciudadanía para su consulta.
+La entrega de material en depósito legal podrá hacerse físicamente en las instalaciones de la Biblioteca Depositaria, y para quienes radiquen fuera de la Capital, pueden hacerlo llegar mediante correo certificado.
