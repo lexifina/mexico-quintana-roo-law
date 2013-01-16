@@ -1,0 +1,1 @@
+Artículo Tercero.- En los casos no previstos en el presente Reglamento Interior, y en los que se presente controversia en cuanto a su interpretación, aplicación y observancia, el Consejero Jurídico resolverá lo conducente.

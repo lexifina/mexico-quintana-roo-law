@@ -1,0 +1,1 @@
+Artículo Quinto.- En tanto se actualizan los Manuales Administrativos respectivos, el Consejero Jurídico resolverá las incidencias de procedimiento y operación, que se originen por la aplicación de este ordenamiento legal.

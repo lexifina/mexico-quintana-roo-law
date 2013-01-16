@@ -1,0 +1,9 @@
+P.O. 5 DE SEPTIEMBRE DE 2012.
+Artículo Primero.- El presente Reglamento Interior entrará en vigor al día siguiente de su publicación en el Periódico Oficial.
+Artículo Segundo.- Se abroga el Reglamento Interior del Instituto de la Consejería Jurídica y de Asistencia legal, publicado en el Periódico Oficial, No. 147, Segunda Sección, Tomo III, de fecha veinticinco de febrero del año dos mil nueve, así como la normatividad que de el emane, y se derogan las disposiciones que se opongan al contenido del presente ordenamiento jurídico.
+Artículo Tercero.- En los casos no previstos en el presente Reglamento Interior, y en los que se presente controversia en cuanto a su interpretación, aplicación y observancia, el Consejero Jurídico resolverá lo conducente.
+Artículo Cuarto.- Para las cuestiones no previstas en este Reglamento Interior, respecto de las funciones de los diversos Órganos Administrativos y demás actividades del personal se estará a lo dispuesto por los Manuales de Organización y Procedimientos de este Instituto.
+Artículo Quinto.- El Manual de Organización del Instituto, deberá expedirse en un plazo no mayor a noventa días hábiles, después de la publicación del presente Reglamento Interior.
+Artículo Sexto.- En tanto se expide el Manual respectivo, el Consejero Jurídico resolverá las incidencias de procedimiento y operación, que se originen por la aplicación de este ordenamiento legal.
+Artículo Séptimo.- El Instituto deberá establecer, controlar y evaluar el Programa Interno de Protección Civil para el personal, instalaciones, bienes e información, observando las normas necesarias para la operación, desarrollo y vigilancia del Programa que establezca la Unidad Estatal de Protección Civil.
+Artículo Octavo.- En cumplimiento a lo dispuesto por el artículo 8°, de la Ley Orgánica de la Administración Pública del Estado de Chiapas, publíquese el presente Reglamento Interior en el Periódico Oficial.

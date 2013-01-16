@@ -1,0 +1,1 @@
+Artículo Cuarto.- Para las cuestiones no previstas en este Reglamento, respecto de las funciones de los diversos órganos administrativos y demás actividades del personal, se estará a lo dispuesto por los Manuales de Organización y Procedimientos de este Instituto.
