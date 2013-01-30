@@ -1,9 +1,9 @@
 P.O. 3 DE MARZO DE 2009.
-DECRETO NO. 100, POR EL QUE SE REFORMAN Y ADICIONAN DIVERSOS ARTICULOS DE LA CONSTITUCION POLITICA DEL ESTADO DE QUINTANA ROO.
+DECRETO No. 100, POR EL QUE SE REFORMAN Y ADICIONAN DIVERSOS ARTÍCULOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE QUINTANA ROO.
 ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor el mismo día de su publicación en el Periódico Oficial del Estado de Quintana Roo, observándose las previsiones contenidas en los artículos siguientes.
-(REFORMADO PRIMER PARRAFO, P.O. 11 DE DICIEMBRE DE 2009)
+(REFORMADO PRIMER PÁRRAFO, P.O. 11 DE DICIEMBRE DE 2009)
 ARTÍCULO SEGUNDO.- El proceso electoral ordinario para renovar al actual Titular del Poder Ejecutivo, a los Diputados de la Legislatura que se encuentran en funciones, así como de los integrantes de los Ayuntamientos que están desempeñando el cargo, iniciará el 16 de marzo del año 2010.
-(REFORMADO PRIMER PARRAFO, P.O. 11 DE DICIEMBRE DE 2009)
+(REFORMADO PRIMER PÁRRAFO, P.O. 11 DE DICIEMBRE DE 2009)
 La jornada electoral tendrá verificativo el primer domingo de julio del año 2010, y quienes resulten electos tomarán posesión de la siguiente forma:
 a).- Los Diputados a la Legislatura el día 24 de Marzo del año 2011 y estarán en funciones hasta que se instale la siguiente Legislatura, que lo hará el 14 de septiembre del año 2013;
 b).- El Titular del Poder Ejecutivo, el día 5 de Abril del año 2011 y estará en funciones hasta la toma de posesión del siguiente titular del Poder Ejecutivo, que lo hará el 25 de septiembre del año 2016; y
