@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 21 DE FEBRERO DE 2013)
+Artículo 16-Ter.- La Secretaría, formulará, coordinará y promoverá para efectos de lo establecido en el Artículo anterior, los programas de Turismo Cultural necesarios que impulsen el desarrollo del mismo. También, promoverá la celebración de convenios de colaboración con dependencias y entidades de la Federación, de los Estados y de los Ayuntamientos, así como con el sector social y privado, con el objeto de facilitar la coordinación en materia de promoción y fomento del Turismo Cultural.
