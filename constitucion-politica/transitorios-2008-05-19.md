@@ -1,5 +1,5 @@
 P.O. 19 DE MAYO DE 2008.
-DECRETO NUM. 008, POR EL QUE SE REFORMAN Y ADICIONAN LOS ARTICULOS 127, 128, 134 Y 135 DE LA CONSTITUCION POLITICA DEL ESTADO DE QUINTANA ROO.
+DECRETO NUM. 008, POR EL QUE SE REFORMAN Y ADICIONAN LOS ARTÍCULOS 127, 128, 134 Y 135 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE QUINTANA ROO.
 PRIMERO.- El presente Decreto entrará en vigor a los diez días de su publicación en el Periódico Oficial del Estado de Quintana Roo y se observarán las previsiones contenidas en los artículos siguientes:
 SEGUNDO.- La Legislatura del Estado o la Diputación Permanente en su caso dentro del término de sesenta días siguientes a la entrada en vigor del presente Decreto, expedirá la convocatoria a elecciones extraordinarias para elegir al Primer Ayuntamiento Constitucional del Municipio de Tulum, el cual se instalara en sesión pública y solemne del Cabildo Electo.
 (ADICIONADO, P.O. 9 DE JUNIO DE 2008)
