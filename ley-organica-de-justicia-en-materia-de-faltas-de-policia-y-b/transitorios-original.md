@@ -9,3 +9,4 @@ Dr. Jorge Arturo Contreras Castillo
 Salón de Sesiones del Poder Legislativa, en la ciudad de Chetumal, Quintana Roo, a los veintitrés días del mes de febrero de mil novecientos ochenta y nueve.
 Diputado Presidente:Diputado Secretario:
 Jesús Pérez Blas.Dr. Francisco Arana Tun.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.

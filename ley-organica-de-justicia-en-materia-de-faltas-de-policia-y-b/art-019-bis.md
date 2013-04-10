@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 9 DE ABRIL DE 2013)
+ARTICULO 19 BIS.- La o el Juez Calificador, es competente en caso de notoria urgencia en los municipios de otorgar las órdenes de protección de emergencia y preventivas.
+Dichas órdenes de protección deberán otorgarse inmediatamente que conozcan de hechos probablemente constitutivos de infracciones o delitos que impliquen violencia contra las mujeres; tendrán una temporalidad no mayor a 72 horas y deberán expedirse dentro de las 8 horas siguientes al conocimiento de los hechos que las generan.
+Lo anterior de conformidad con lo dispuesto en la Ley de Acceso de la (sic) Mujeres a una Vida Libre de Violencia del Estado de Quintana Roo, así como del procedimiento y observancia que determine el reglamento o acuerdo conducente, salvo para las órdenes de naturaleza civil.
