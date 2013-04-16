@@ -107,3 +107,5 @@ b. Baldíos9.2
 II. Rústicos9.2
 III. Predios con frente a la Playa18.4
 DECIMO.- El presente decreto entrará en vigor a partir del 1o. de enero del año 2012, previa publicación en el Periódico Oficial del Estado de Quintana Roo.
+(ADICIONADO, P.O. 15 DE ABRIL DE 2013)
+DÉCIMO PRIMERO.- Cuando el impuesto predial causado correspondiente al ejercicio fiscal 2013, sea cubierto en una sola emisión por anticipado y cubra todo el año y sea enterado en la Tesorería Municipal correspondiente, los Ayuntamientos podrán conceder un descuento hasta del 15% del total del importe, siempre y cuando el pago se efectúe a partir de la vigencia del presente Decreto, y hasta el último día hábil del mes junio de 2013.
