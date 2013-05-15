@@ -1,1 +1,0 @@
-ARTÍCULO QUINTO.- El Ejecutivo del Estado, dentro del término de 120 días contados a partir de la entrada en vigor de la presente Ley, deberá emitir el Decreto de creación de la Comisión de Energía del Estado de Quintana Roo bajo las siglas "CENER" a fin de dar cumplimiento a lo establecido en el Artículo 38 de esta Ley.

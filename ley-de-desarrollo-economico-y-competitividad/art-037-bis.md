@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 25 DE MAYO DE 1994)
+ARTICULO 37 Bis.- El Consejo determinará el lugar donde permanecerá el menor durante el tiempo que haya de transcurrir para la práctica de las diligencias a que se refieren los dos artículos precedentes. En caso de que éste sea menor de doce años y se encontrase material o moralmente abandonado, el Consejo lo pondrá bajo la custodia de un establecimiento educativo o de una familia honorable.
