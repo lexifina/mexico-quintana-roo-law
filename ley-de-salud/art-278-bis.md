@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 14 DE JUNIO DE 2013)
+ARTÍCULO 278 BIS. Para el desarrollo de una diligencia y cuando por alguna situación ajena al personal comisionado no pueda efectuarse la visita de verificación correspondiente, según el caso, se procederá a lo siguiente:
+I.- Cuando el domicilio señalado no corresponda al establecimiento programado, se levantará un acta informativa;
+II.- Cuando no haya quien la atienda, el verificador sanitario dejará citatorio pegado en la vía de acceso indicando día y hora en que se presentará nuevamente a fin de que ésta sea atendida, de lo cual asentará la razón en el citatorio respectivo.
+III.- Cuando se niegue el acceso al establecimiento o por segunda ocasión no haya quien atienda la diligencia, se dejará aviso donde se establecerá el término de tres días hábiles para que el responsable, propietario o representante legal del establecimiento se presente a la oficina correspondiente a declarar lo que a su derecho convenga; y
+IV.- Cuando el establecimiento a verificar se encuentre permanentemente cerrado y la causa que origina la visita represente un riesgo inminente para la salud pública, el titular de la Secretaría de Salud, procederá en términos de lo que dispone el segundo párrafo del artículo 248-Quáter de esta ley.

@@ -1,5 +1,5 @@
 P.O. 30 DE JUNIO DE 2010.
-DECRETO NUMERO 287, POR EL QUE SE REFORMAN Y ADICIONAN LOS ARTICULOS 5, 13 Y EL TITULO DECIMO PRIMERO BIS DE LA LEY DE SALUD DEL ESTADO DE QUINTANA ROO.
+DECRETO NÚMERO 287, POR EL QUE SE REFORMAN Y ADICIONAN LOS ARTÍCULOS 5, 13 Y EL TÍTULO DÉCIMO PRIMERO BIS DE LA LEY DE SALUD DEL ESTADO DE QUINTANA ROO.
 PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
 SEGUNDO.- Los miembros del Consejo Estatal de Trasplantes, deberán celebrar la sesión de instalación del mismo, dentro de los treinta días naturales siguientes a la entrada en vigor del presente Decreto.
 TERCERO.- El Consejo Estatal de Trasplantes, expedirá su reglamento interno dentro de los noventa días naturales posteriores a la fecha de su instalación.

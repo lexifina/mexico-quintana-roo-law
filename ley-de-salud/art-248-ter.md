@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE JUNIO DE 2013)
+ARTICULO 248 TER.- Los propietarios o poseedores de cualquiera de los establecimientos señalados en el artículo anterior, estarán obligados a conservar las condiciones de saneamiento básico de los mismos, en los términos que disponga esta Ley, los reglamentos respectivos, otras disposiciones legales aplicables y las normas técnicas correspondientes, so pena de las acciones sanitarias preventivas de seguridad a fin de garantizar la salud pública, independientemente de las medidas y sanciones aplicables por esta Ley.

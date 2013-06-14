@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 30 DE ABRIL DE 1998)
-ARTICULO 13 bis.- Le corresponde a la Secretaría de Salud del Gobierno del Estado, ejercer las funciones contempladas en la Ley Orgánica de la Administración Pública del Estado y en esta Ley; y por su parte a los Servicios Estatales de Salud le corresponde ejercer las funciones operativas contempladas en su Decreto de creación y en esta Ley, sin perjuicio de la coordinación de acciones que pudiesen tener ambas dependencias gubernamentales.
+ARTICULO 13 BIS.- Le corresponde a la Secretaría de Salud del Gobierno del Estado, ejercer las funciones contempladas en la Ley Orgánica de la Administración Pública del Estado y en esta Ley; y por su parte a los Servicios Estatales de Salud le corresponde ejercer las funciones operativas contempladas en su Decreto de creación y en esta Ley, sin perjuicio de la coordinación de acciones que pudiesen tener ambas dependencias gubernamentales.
 (ADICIONADO, P.O. 9 DE AGOSTO DE 2010)
 Para el tratamiento de los farmacodependientes se contará con un centro especializado en tratamiento, atención y rehabilitación, con base en sistemas modernos de tratamiento y rehabilitación, fundamentados en el respeto a la integridad y a la libre decisión del farmacodependiente.
 (ADICIONADO, P.O. 9 DE AGOSTO DE 2010)
