@@ -1,0 +1,3 @@
+P.O. 14 DE AGOSTO DE 2013.
+PRIMERO. El presente decreto entrará en vigor una vez inicie la vigencia de las disposiciones contempladas en el decreto mediante el cual reforma la fracción IV del artículo 21, el párrafo décimo primero de la fracción II del artículo 49, la fracción VI del articulo 103, el primer párrafo del artículo 111, el artículo 118, la fracción V del artículo 153 y el artículo 165; y se adicionan los párrafos segundo y tercero a la fracción XXX del artículo 75 y un párrafo tercero al artículo 94, todos de la Constitución Política del Estado Libre y Soberano de Quintana Roo.
+SEGUNDO. Las disposiciones que contravengan el presente Decreto quedarán sin efecto.
