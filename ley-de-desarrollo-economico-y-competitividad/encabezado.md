@@ -1,15 +1,8 @@
-CODIGO TUTELAR PARA MENORES EN EL ESTADO DE ZACATECAS
-N. DE E. DE CONFORMIDAD CON EL ARTICULO SEGUNDO TRANSITORIO DE LA LEY DE JUSTICIA PARA ADOLESCENTES EN EL ESTADO DE ZACATECAS, PUBLICADA EN EL P.O. DE 30 DE SEPTIEMBRE DE 2006, EL PRESENTE ORDENAMIENTO HA SIDO ABROGADO.
-Código publicado en el Suplemento al Periódico Oficial del Estado de Zacatecas, el sábado 26 de abril de 1986.
-LIC. JOSE GUADALUPE CERVANTES CORONA, Gobernador Constitucional del Estado Libre y Soberano de Zacatecas, a sus habitantes hago saber:
-Que los CC. Diputados Secretarios de la H. Quincuagésima Primera Legislatura del Estado, se han servido dirigirme el siguiente
-DECRETO # 237
-La H. Quincuagésima Primera Legislatura del Estado Libre y Soberano de Zacatecas.
-CONSIDERANDO PRIMERO.- Nuestra Constitución Política establece en su artículo 1 que en el Estado de Zacatecas, "todo individuo gozará de las garantías que otorgan la Constitución General de la República y del Estado..." por su parte el artículo 3 se impone la obligación al Estado de cumplir y hacer operante la justicia social, "basada en los derechos de la persona humana"; mientras que en el inciso B) se impone la obligación al Estado de "proporcionar el acceso a la educación y la cultura en todos sus niveles, combatiendo la ignorancia, uno de los determinantes de la miseria y la desigualdad social".
-CONSIDERANDO SEGUNDO.- La propia Constitución Política del Estado, en su artículo 6 reconoce la personalidad jurídica de la familia, misma que deberá ser protegida "dictándose las disposiciones necesarias para su seguridad, estabilidad y mejoramiento". En general, el Estado se obliga en favor de la persona humana, a velar por su salud, por su educación, por su acceso a las fuentes de trabajo, por su seguridad jurídica para que la libertad sea entera y cabalmente respetada como uno de los derechos fundamentales del hombre.
-CONSIDERANDO TERCERO.- Una de las preocupaciones primordiales del Estado es la relativa a la protección y tratamiento de los menores en sus aspectos biológico, psíquico, físico y social, para lo cual habrá de ocuparse con especial cuidado de la prevención y tratamiento de las conductas antisociales del mismo.
-Para lograr los fines antes citados se considera la necesidad de abolir los tribunales para menores, tomando en cuenta la incapacidad natural de éstos últimos. Se crea en cambio, la institución del consejo tutelar para menores que vele y establezca los procedimientos para la prevención de las conductas antisociales de los mismos, así como su rehabilitación moral y material, agilizándose para ello los procedimientos mediante organismos capacitados para ello.
-CONSIDERANDO CUARTO.- Para el logro de los fines antes mencionados es necesario institucionalizar la procuraduría y el patronato de menores. El presente ordenamiento contiene las disposiciones adecuadas para su funcionamiento.
-Por lo anteriormente expuesto, en nombre del Pueblo es de Decretarse y se
-DECRETA:
-CODIGO TUTELAR PARA MENORES EN EL ESTADO DE ZACATECAS
+LEY DE DESARROLLO ECONÓMICO Y COMPETITIVIDAD PARA EL ESTADO DE QUINTANA ROO
+Ley publicada en el Número 83 Extraordinario del Periódico Oficial del Estado de Quintana Roo, el lunes 17 de diciembre de 2007.
+DECRETO NÚMERO: 245
+QUE CONTIENE LA LEY DE DESARROLLO ECONÓMICO Y COMPETITIVIDAD PARA EL ESTADO DE QUINTANA ROO
+LA HONORABLE XI LEGISLATURA CONSTITUCIONAL DEL ESTADO
+LIBRE Y SOBERANO DE QUINTANA ROO,
+D E C R E T A:
+LEY DE DESARROLLO ECONÓMICO Y COMPETITIVIDAD PARA EL ESTADO DE QUINTANA ROO

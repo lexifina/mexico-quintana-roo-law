@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- El Titular de la Secretaría en un plazo máximo de 90 días, contados a partir de la entrada en vigor de la presente Ley, deberá convocar a los miembros integrantes de la Comisión Estatal de Competitividad, a efecto de que celebren la sesión de instalación de dicho órgano.

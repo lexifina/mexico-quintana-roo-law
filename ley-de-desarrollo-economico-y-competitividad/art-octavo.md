@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO.- Hasta en tanto no se expida el Reglamento correspondiente, la Secretaría de Desarrollo Económico, podrá emitir las disposiciones de carácter general que consideren necesarias para la aplicación de la presente Ley.
