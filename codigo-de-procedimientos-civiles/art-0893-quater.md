@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 30 DE NOVIEMBRE DE 2012)
-Artículo 893-Quáter.- El juez al recibir la promoción por parte del Administrador de Gestión Judicial realizará el acuerdo correspondiente, mismo que será firmado únicamente por él; una vez realizado el acuerdo se remitirá al Administrador de Gestión Judicial para que éste, en caso de ser necesario, lo turne para su notificación al actuario correspondiente.

@@ -1,3 +1,3 @@
-(ADICIONADO, P.O. 30 DE NOVIEMBRE DE 2012)
-Artículo 962-Ter.- Recibidas las actuaciones, el Administrador de Gestión Judicial del Tribunal de Alzada, remitirá dichas constancias al Magistrado en turno, para qué este a su vez, a más tardar dentro de los tres días siguientes, decida la admisibilidad del recurso.
-En el mismo acuerdo en donde se admita el recurso, el Magistrado citará a una audiencia dentro de los cinco días hábiles siguientes, para la expresión oral de agravios, los acuerdos serán únicamente firmados por el Magistrado que realice el acuerdo.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, P.O. 30 DE AGOSTO DE 2013)
+Artículo 962 Ter.- El perito nombrado por el Juez Oral puede ser recusado en el momento de la audiencia inicial, por los mismos impedimentos por los que pueden serlo los jueces, substanciándose y resolviéndose en la misma audiencia.

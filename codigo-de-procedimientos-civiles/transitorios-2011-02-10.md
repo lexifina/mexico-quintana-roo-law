@@ -1,7 +1,9 @@
 P.O. 10 DE FEBRERO DE 2011.
 PRIMERO.- Estas reformas al Código de Procedimientos Civiles para el Estado Libre y Soberano de Quintana Roo, comenzarán a regir a los seis meses siguientes al de su publicación en el Periódico Oficial del Estado.
 SEGUNDO.- El procedimiento oral en materia familiar que prevén las reformas contenidas en el presente Decreto, se aplicará en principio únicamente en el Distrito Judicial de Chetumal. Con respecto a su aplicación en el resto de los Distritos Judiciales de la Entidad, ésta se hará de manera gradual y preferentemente en los siguientes Distritos Judiciales y conforme la siguiente calendarización:
-a) En el Distrito Judicial de Cancún, hasta el 16 de agosto del año 2013.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, P.O. 30 DE AGOSTO DE 2013)
+a) En el Distrito Judicial de Cozumel, hasta el 16 de agosto del año 2013.
 b) En el Distrito Judicial de Felipe Carrillo Puerto, hasta el 16 de agosto de 2015.
 c) En el resto de los Distritos Judiciales de la entidad, hasta el 16 de agosto de 2017.
 Cuando de forma extraordinaria a lo previsto en el calendario antes citado, el Consejo de la Judicatura del Poder Judicial del Estado, considere que existen las condiciones necesarias para la implementación de las reformas en alguno de los distritos judiciales del Estado, en alguna fecha previa a las establecidas en el calendario referido, la Legislatura del Estado o en su caso, la Diputación Permanente, previa comunicación que le formule el Consejo de la Judicatura del Estado, emitirá la Declaratoria, que se publicará en el Periódico Oficial del Estado, en la que se señale expresamente que el procedimiento oral en materia familiar contenido en el presente Decreto, se aplicará en el Distrito o Distritos Judiciales a que se contraiga la comunicación antes referida.
