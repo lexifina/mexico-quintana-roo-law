@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 6 DE SEPTIEMBRE DE 2013)
+ARTICULO 127-E.- Toda persona mayor de edad, en pleno uso de sus facultades mentales, puede, en cualquier momento e independientemente de su estado de salud, expresar su voluntad por escrito ante dos testigos, de recibir o no cualquier tratamiento, en caso de que llegase a padecer una enfermedad y estar en situación terminal y no le sea posible manifestar dicha voluntad. Dicho documento podrá ser revocado en cualquier momento.
+Para que sea válida la disposición de voluntad referida en el párrafo anterior, deberá apegarse a lo dispuesto en la presente Ley y demás disposiciones aplicables.
