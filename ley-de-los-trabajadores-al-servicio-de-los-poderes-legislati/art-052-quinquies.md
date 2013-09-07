@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 6 DE SEPTIEMBRE DE 2013)
+ARTICULO 52-QUINQUIES.- La contratación de las personas con discapacidad se sujetará a las reglas siguientes:
+I. Deberán ser considerados en igualdad de condiciones respecto de cualquier otra persona, siempre y cuando la persona con discapacidad acredite su aptitud para ocupar el empleo que pretende y no se ponga en riesgo su salud o vida o de sus compañeros de trabajo, ni se comprometa la seguridad del centro de trabajo.
+II. Las personas con discapacidad tendrán derecho a trabajos compatibles de acuerdo con su condición de discapacidad y aptitudes, siendo los sujetos obligados por la presente Ley en su carácter de patrones, quienes informen de forma clara, oportuna y precisa las condiciones, del tipo y características del trabajo, considerando las facilidades de accesibilidad, libre desplazamiento y ubicación del trabajo ofertado.
