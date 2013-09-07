@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 6 DE SEPTIEMBRE DE 2013)
+ARTICULO 199-TER.- A quien por sí o por interpósita persona, utilizando la violencia física o moral, intimide a cualquier persona para evitar que ésta o un tercero ejerza la actividad de periodista, se le aplicará de seis meses a tres años de prisión y de cincuenta a doscientos días multa.
+Si quien realiza el acto fuere un servidor público se le impondrá una pena de prisión de seis meses a cuatro años y destitución e inhabilitación para desempeñar cualquier empleo, cargo o comisión públicos por un tiempo igual al de la pena de prisión impuesta.
+Para efectos de este artículo se entenderá por periodista, toda persona que hace del ejercicio de las libertades de expresión y/o información su actividad principal o complementaria, entendida como la actividad de buscar y difundir información a la sociedad, de manera permanente y en forma remunerada.

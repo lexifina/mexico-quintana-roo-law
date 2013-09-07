@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 6 DE SEPTIEMBRE DE 2013)
+ARTÍCULO 199-SEXIES.- A quien por sí o por interpósita persona, mediante el uso de violencia física o moral, obligue a cualquier persona dedicada a la actividad de periodista o vinculada a la misma, a revelar el secreto profesional periodístico o la reserva de la fuente de información, se le impondrá de seis meses a tres años de prisión y de cincuenta a doscientos días multa.
+Si el agente se valiese de una función pública se le impondrá de seis meses a cuatro años de prisión y destitución e inhabilitación para desempeñar cualquier empleo, cargo o comisión públicos por un tiempo igual al de la pena de prisión impuesta.

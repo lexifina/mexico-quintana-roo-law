@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE SEPTIEMBRE DE 2013)
+ARTÍCULO 199-QUINQUIES.- La autoridad o funcionario público que, abusando de su cargo suspenda, clausure o establezca censura previa de algún medio de información escrito o impreso, o impida su circulación o difusión, o recoja ediciones de libros o periódicos evitando su publicación, se le impondrá una pena de seis meses a cuatro años de prisión y destitución e inhabilitación para desempeñar cualquier empleo, cargo o comisión públicos por un tiempo igual al de la pena de prisión impuesta.

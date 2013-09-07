@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 6 DE SEPTIEMBRE DE 2013)
+ARTICULO 199-QUATER.- A quien por sí o por interpósita persona obstaculice o impida el derecho de toda persona para recibir, buscar, investigar, sistematizar, acopiar, almacenar, publicar o difundir información referente a hechos que sean considerados de interés público, se le impondrá de seis meses a tres años de prisión y de cincuenta a doscientos días multa.
+Si quien realiza el acto fuere un servidor público se le impondrá una pena de seis meses a cuatro años de prisión y destitución e inhabilitación para desempeñar cualquier empleo, cargo o comisión públicos por un tiempo igual al de la pena de prisión impuesta.
