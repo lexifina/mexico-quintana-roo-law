@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 30 DE SEPTIEMBRE DE 2013)
+ARTÍCULO 137 BIS.- El Sistema Municipal para la Prevención Social de la Violencia y la Delincuencia es el conjunto de Dependencias y Entidades de la Administración Pública Municipal en interacción y vinculación permanente entre sí, para el desarrollo de acciones, políticas y lineamientos integrales de cohesión social, participación ciudadana, cultura de la paz, cultura de la legalidad, de derechos humanos y Desarrollo Institucional en materia de prevención social de la violencia.
+El Sistema Municipal tendrá por objeto reducir los factores de riesgo que favorezcan la generación de violencia y delincuencia, así como combatir las distintas causas y factores que la generan dentro del territorio municipal.
