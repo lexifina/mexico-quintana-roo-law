@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE FEBRERO DE 2014)
+Artículo 53-Bis.- La Comisión podrá emitir recomendaciones generales cuando derivado de los estudios realizados por la Comisión, se determine que diversas autoridades han vulnerado derechos humanos, las cuales no requieren aceptación por parte de las autoridades a quienes vayan dirigidas; sin embargo, la verificación de su cumplimiento se hará mediante la realización de estudios generales, que para tal efecto realice la Comisión.
