@@ -1,0 +1,7 @@
+LEY DE VÍCTIMAS DEL ESTADO DE QUINTANA ROO
+Ley publicada en el Número Extraordinario del Periódico Oficial del Estado de Quintana Roo, el lunes 7 de abril de 2014.
+LA HONORABLE XIV LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
+DECRETA:
+SE EXPIDE LA LEY DE VÍCTIMAS DEL ESTADO DE QUINTANA ROO.
+ÚNICO.- Se expide La Ley de Víctimas del Estado de Quintana Roo.
+LEY DE VÍCTIMAS DEL ESTADO DE QUINTANA ROO
