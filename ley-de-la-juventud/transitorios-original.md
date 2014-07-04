@@ -5,7 +5,8 @@ TERCERO.- Los Municipios, en un plazo de noventa días a partir de la entrada en
 CUARTO.- Los Municipios, en la medida de sus posibilidades presupuestales, deberán crear las Unidades Administrativas en materia de Juventud de acuerdo a lo establecido en el Título Tercero, Capítulo II de la presente Ley.
 En tanto se dé cumplimiento a lo dispuesto en el párrafo anterior, los Ayuntamientos deberán destinar el área administrativa que asumirá las funciones de atención a los jóvenes en el Municipio.
 Quedan exceptuados del cumplimiento de este artículo, los Municipios que ya cuentan con alguna dependencia u organismo municipal de atención a la Juventud.
-QUINTO.- El primer Congreso Juvenil del Estado de Quintana Roo, se instaurará el día 12 de agosto del año 2014.
+(REFORMADO, P.O. 4 DE JULIO DE 2014)
+QUINTO.- El Primer Congreso Juvenil del Estado de Quintana Roo, se instaurará en el mes de septiembre del año 2014.
 SALÓN DE SESIONES DEL HONORABLE PODER LEGISLATIVO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS DOCE DIAS DEL MES DE MARZO DE DOS MIL TRECE.
 DIPUTADO PRESIDENTE:
 ING. LUIS ALFONSO TORRES LLANES
@@ -16,3 +17,4 @@ EL GOBERNADOR CONSTITUCIONAL DEL ESTADO DE QUINTANA ROO.
 LIC. ROBERTO BORGE ANGULO.
 EL SECRETARIO DE GOBIERNO DEL ESTADO DE QUINTANA ROO.
 M. EN A. JOSÉ GABRIEL CONCEPCIÓN MENDICUTI LORÍA.
+N. DE. E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
