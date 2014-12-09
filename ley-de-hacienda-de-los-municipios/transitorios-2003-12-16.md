@@ -1,5 +1,4 @@
 P.O. 16 DE DICIEMBRE DE 2003.
-TRANSITORIOS
 PRIMERO.- En tanto el Estado y los Municipios permanezcan adheridos al Sistema Nacional de Coordinación Fiscal, quedan en suspenso los siguientes:
 I.- DERECHOS:
 A.- Licencias, anuencias previas al otorgamiento de las mismas, en general concesiones, permisos o autorizaciones, o bien obligaciones y requisitos que condicionen el ejercicio de actividades comerciales o industriales y de prestación de servicios. Por lo anterior, quedan en suspenso los siguientes numerales:
@@ -55,5 +54,5 @@ NO HABITACIONAL 3.10
 URBANO Y SUBURBANO BALDIO
 NO HABITACIONAL 7.75
 RUSTICO BALDIO 3.45
-SEPTIMO.- En el momento en el quede (sic) sin efecto lo dispuesto en los artículo tercero, cuarto, quinto y sexto transitorios de esta Ley, los Municipios de Cozumel, Othón P. Blanco, Isla Mujeres y Benito Juárez deberán presentar un análisis del impacto que implique la utilización de las tasas establecidas en el artículo 13 de la presente Ley.
+SEPTIMO.- En el momento en el (sic) quede sin efecto lo dispuesto en los artículo tercero, cuarto, quinto y sexto transitorios de esta Ley, los Municipios de Cozumel, Othón P. Blanco, Isla Mujeres y Benito Juárez deberán presentar un análisis del impacto que implique la utilización de las tasas establecidas en el artículo 13 de la presente Ley.
 OCTAVO.- Se derogan las disposiciones dictadas con anterioridad que se opongan al presente decreto.

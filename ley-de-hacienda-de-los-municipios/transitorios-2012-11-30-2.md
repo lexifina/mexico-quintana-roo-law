@@ -2,7 +2,7 @@ P.O. 30 DE NOVIEMBRE DE 2012.
 DECRETO NÚMERO 182 POR EL QUE SE EXPIDE LA LEY DE HACIENDA DEL MUNICIPIO DE TULUM DEL ESTADO DE QUINTANA ROO.
 PRIMERO.- La presente ley, entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
 SEGUNDO.- Se derogan todas aquellas disposiciones que contravengan lo dispuesto en la presente ley, salvo lo establecido en el Capítulo XVIII del Título Tercero de la Ley de Hacienda de los Municipios del Estado de Quintana Roo, mismo que será aplicado en todos sus términos en el Municipio de Tulum, Quintana Roo.
-TECERO.- Se deroga en la Ley de Hacienda de los Municipios del Estado de Quintana Roo, toda referencia realizada respecto del Municipio de Tulum, con la salvedad realizada en el artículo transitorio inmediato anterior de esta Ley.
+TECERO (SIC).- Se deroga en la Ley de Hacienda de los Municipios del Estado de Quintana Roo, toda referencia realizada respecto del Municipio de Tulum, con la salvedad realizada en el artículo transitorio inmediato anterior de esta Ley.
 CUARTO.- En tanto el Estado y el Municipio permanezcan adheridos al Sistema Nacional de Coordinación Fiscal, suscrito mediante convenio y anexos respectivos con la Secretaría de Hacienda y Crédito Público, quedan en suspenso los siguientes derechos:
 A. Licencias, anuencias previas al otorgamiento de las mismas, en general concesiones, permisos o autorizaciones, o bien obligaciones y requisitos que condicionen el ejercicio de actividades comerciales o industriales y de prestación de servicios. Asimismo, los que resulten como consecuencia de permitir o tolerar excepciones a una disposición administrativa tales como la ampliación de horario, con excepción de los siguientes numerales:
 1. Licencias de construcción.
