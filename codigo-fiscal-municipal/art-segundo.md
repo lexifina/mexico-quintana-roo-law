@@ -1,1 +1,0 @@
-Artículo Segundo.- Se abroga el Reglamento Interior de la Consejería Jurídica del Gobernador, publicado en el Periódico Oficial, número 104, Segunda Sección, Tomo III, de fecha dieciséis de julio del año dos mil ocho, así como la normatividad que de el emane, y se derogan las disposiciones que se opongan al contenido del presente ordenamiento jurídico.
