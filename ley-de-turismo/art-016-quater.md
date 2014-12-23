@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 21 DE FEBRERO DE 2013)
-Artículo 16-Quáter.- La Secretaría, con la participación de las distintas dependencias y entidades podrá concretar convenios con los diversos prestadores de servicios turísticos, para el cumplimiento de los objetivos de este Capítulo.
+(REFORMADO, P.O. 22 DE DICIEMBRE DE 2014)
+Artículo 16 Quáter.- La Secretaría también podrá concretar convenios con los diversos Prestadores de Servicios Turísticos, para el (sic) cumplir con el objetivo de facilitar la promoción y fomento de estos tipos de turismo.
