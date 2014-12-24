@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2014)
+Artículo 43 bis. Atendiendo a la facultad de iniciativa que les confiere el artículo 68 de la Constitución Política del Estado Libre y Soberano de Quintana Roo, los Diputados podrán iniciar el trámite legislativo para declarar Patrimonio Cultural del Estado, bienes muebles o inmuebles, tangibles o intangibles.
+La Comisión de Cultura de la Legislatura, conocerá de las iniciativas que se presenten atendiendo a lo dispuesto por el párrafo anterior.
+Los diputados, podrán invitar a académicos de instituciones públicas o privadas, personal del Instituto Nacional de Antropología e Historia; de la Secretaría de Educación y Cultura del Estado, así como a expertos en la materia, que les permitan coadyuvar para el estudio y el debido análisis de una Iniciativa.
