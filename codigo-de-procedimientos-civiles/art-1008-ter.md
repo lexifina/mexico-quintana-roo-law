@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 24 DE JULIO DE 2015)
+Artículo 1008-Ter.- En la diligencia de emplazamiento se le requerirá al deudor del pago de lo adeudado y de no hacerlo se le nombrará depositario judicial, respecto a la finca dada en garantía hipotecaria, de sus frutos y los objetos que con arreglo al contrato y conforme al Código Civil, deban considerarse como inmovilizados y formando parte de la misma finca de los cuales se formará inventario para agregarlo a los autos, siempre que lo pida el acreedor.
+Para efecto del inventario el deudor queda obligado a dar todas las facilidades para su formación y en caso de desobediencia, el Juez lo compelerá por los medios de apremio que le autoriza la ley.
+El deudor que no haya aceptado la responsabilidad de depositario, será desalojado judicialmente y entregará desde luego la tenencia material al actor.

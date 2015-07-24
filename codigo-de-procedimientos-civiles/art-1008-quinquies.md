@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE JULIO DE 2015)
+Artículo 1008-Quinquies.- Si durante la conciliación, el demandado confesare ante el facilitador adscrito al Centro de Justicia Alternativa ciertas las pretensiones del actor, el juez oral le concederá al demandado un término de gracia de quince días para hacer los pagos adeudados, exentándolo del pago de gastos y costos que se hubieren originado. Si no lo hiciere, se dictará sentencia condenatoria en la que se determine el remate de la finca hipotecada por el saldo de lo adeudado por el demandado.

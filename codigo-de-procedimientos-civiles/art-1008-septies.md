@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE JULIO DE 2015)
+Artículo 1008-Septies.- Desde el día del emplazamiento, contrae el deudor la obligación de depositario judicial de la finca hipotecada, de sus frutos y de todos los objetos que con arreglo a la escritura y conforme al Código Civil, deban considerarse como inmovilizados y formando parte de la misma finca, de los cuales se formará inventario para agregarlo a los autos, siempre que lo pida el acreedor.

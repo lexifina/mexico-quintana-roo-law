@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE JULIO DE 2015)
+Artículo 1008-Quater.- Si en la diligencia que se señala en el párrafo anterior no se entendiere directamente con el deudor, éste deberá dentro de los tres días siguientes manifestar si acepta o no la responsabilidad de depositario, entendiéndose que no lo acepta si no hace esta manifestación y en este caso el autor podrá pedir que se le entregue la tenencia material de la finca.
