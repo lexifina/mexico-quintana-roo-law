@@ -7,3 +7,5 @@ IV.- Por intervención de dos o más personas;
 V.- Mediante uso de armas u otros medios peligrosos;
 VI.- En contra de una oficina bancaria, recaudadora u otra en que se conservan caudales, o en contra de las personas que las custodian, manejan o transportan;
 VII.- En local comercial abierto al público;
+(ADICIONADA, P.O. 24 DE JULIO DE 2015)
+VIII.- En agravio de bienes que pertenezcan o estén destinados al servicio educativo, en escuelas o instituciones educativas de carácter público o privado que cuenten con reconocimiento de validez oficial, o en inmuebles destinados a prestar un servicio educativo.
