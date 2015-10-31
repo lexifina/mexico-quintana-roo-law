@@ -2,7 +2,8 @@
 ARTICULO 157 D.- El Consejo Estatal de Trasplantes tendrá las siguientes funciones:
 I.- Promover el diseño, instrumentación y operación del Sistema Estatal de Trasplantes, así como de los subsistemas que lo integren de conformidad con el Programa Nacional de Trasplantes y en apoyo de las acciones que el Consejo Nacional de Trasplantes lleve a cabo;
 II.- Proponer políticas, estrategias y acciones para la elaboración y aplicación del Programa Estatal de Trasplantes de acuerdo con las acciones que señale el Programa Nacional de Trasplantes;
-III.- Proponer a las autoridades competentes la realización de actividades educativas, de investigación y de difusión, para el fomento de la cultura de la donación de órganos, tejidos y células;
+(REFORMADA, P.O. 30 DE OCTUBRE DE 2015)
+III.- Proponer a las autoridades competentes la realización de actividades educativas, de investigación y de difusión, para el fomento de la cultura de la donación de órganos, sangre, componentes sanguíneos, hemoderivados, tejidos y células troncales para fines de trasplante;
 IV.- Establecer mecanismos para la sistematización y difusión entre los sectores involucrados de la normatividad y de la información científica, técnica y sanitaria en materia de trasplantes;
 V.- Coordinar las acciones de las dependencias y entidades públicas estatales en la instrumentación del Programa Estatal de Trasplantes en congruencia con el Programa Nacional de Trasplantes, así como promover la concertación de acciones con las instituciones de los sectores social y privado que lleven a cabo tareas relacionadas con el Programa mencionado;
 VI.- Proponer a las autoridades competentes mecanismos de coordinación entre las autoridades interinstitucionales de la Entidad, con el objeto de que éstas adopten las medidas necesarias para apoyar las acciones en materia de trasplantes;
