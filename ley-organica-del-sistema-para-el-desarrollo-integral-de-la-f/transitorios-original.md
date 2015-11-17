@@ -7,3 +7,4 @@ Mvz. Tomás A. Velo Pérez
 Diputada Secretaria:
 Profra. Ligia Alvarez y Manzano
 En cumplimiento a lo dispuesto por la Fracción I del Artículo 91 de la Constitución Política del Estado Libre y Soberano de Quintana Roo, y para su debida publicación y observancia, expido el presente Decreto en la Residencia del Poder Ejecutivo a los once días del mes de Enero de mil novecientos ochenta y cinco.- El Gobernador Constitucional del Estado.- Lic. Pedro Joaquín Coldwell.- (Firmado).- El Secretario de Gobierno.- Lic. Esteban Maqueo Coral.- (Firmado)
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
