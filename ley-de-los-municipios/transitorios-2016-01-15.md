@@ -1,0 +1,3 @@
+P.O. 15 DE ENERO DE 2016.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO: 382 POR EL QUE SE REFORMAN LA FRACCIÓN II DEL ARTÍCULO 8 Y EL PÁRRAFO PRIMERO DEL ARTÍCULO 12 DE LA LEY DE LOS MUNICIPIOS DEL ESTADO DE QUINTANA ROO".]
+ÚNICO. Este Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
