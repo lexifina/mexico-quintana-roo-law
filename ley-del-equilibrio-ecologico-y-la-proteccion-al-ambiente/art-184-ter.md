@@ -13,5 +13,6 @@ X.- Elaborar recomendaciones para mejorar el marco jurídico ambiental vinculado
 XI.- Promover mecanismos de consulta y participación ciudadana en materia de medio ambiente, recursos naturales y desarrollo sustentable, que fomente el ejercicio de los derechos ciudadanos en esta materia;
 XII.- Coordinarse con organismos homólogos de carácter estatal, regional, nacional e internacional, a fin de intercambiar experiencias, acciones y estrategias que puedan resultar mutuamente beneficiosas, y
 XIII.- Las demás que sean necesarias para la consecución de sus fines, de objeto de esta Ley y estén previstas en otros ordenamientos.
+(REFORMADA SU DENOMINACIÓN, P.O. 15 DE FEBRERO DE 2016)
 CAPITULO IX
-Denuncia Popular
+Denuncia en materia Ambiental
