@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE MARZO DE 2016)
+Artículo 100 Octies. Los deportistas, entrenadores, técnicos, directivos y demás personas, en el ámbito de la disciplina deportiva, deberán actuar conforme a las disposiciones y lineamientos que para prevenir y erradicar la violencia en el deporte emita el Organismo Rector de la Cultura Física y el Deporte en el Estado así como los establecidos en las disposiciones reglamentarias y estatutarias emitidas por las Asociaciones Deportivas Estatales respectivas.

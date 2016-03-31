@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 30 DE MARZO DE 2016)
+Artículo 100 Quater. El Organismo Rector de la Cultura Física y el Deporte en el Estado será el encargado de elaborar y conducir las políticas generales contra la violencia en el deporte.
+El Organismo Rector de la Cultura Física y el Deporte en el Estado podrá solicitar la participación de dependencias o entidades de la Administración Pública Estatal, a fin de colaborar, apoyar y desarrollar planes y estudios que aporten eficacia a las acciones encaminadas en la prevención de la violencia en el deporte. Asimismo, podrán participar personas destacadas en el ámbito del deporte.
+Será obligación del Organismo Rector de la Cultura Física y el Deporte en el Estado, la elaboración de un Programa Anual de Trabajo para la Prevención de la Violencia en Eventos Deportivos.
