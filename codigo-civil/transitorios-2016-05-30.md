@@ -1,0 +1,3 @@
+P.O. 30 DE MAYO DE 2016.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO: 402 POR EL QUE SE REFORMAN LOS ARTÍCULOS 602 BIS, 826, 827, 830, 983, 1190, 1527, Y SE DEROGAN LOS ARTÍCULOS 831, 1526 Y 1538, TODOS DEL CÓDIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
