@@ -1,0 +1,4 @@
+P.O. 1 DE AGOSTO DE 2016.
+[N. DE E. TRANSITORIOS DE LA "DECLARATORIA DE DECRETO NÚMERO: 447 POR EL QUE SE REFORMAN DIVERSAS DISPOSICIONES DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor previa su publicación en el Periódico Oficial del Estado de Quintana Roo, cuando inicie su vigencia el Decreto por el que se reforman y derogan diversas disposiciones de la Constitución Política del Estado Libre y Soberano de Quintana Roo, y por el que se reforman diversas disposiciones de la Ley Orgánica del Poder Judicial del Estado de Quintana Roo y de la Ley Reglamentaria de los artículos 104 y 105 de la Constitución Política del Estado Libre y Soberano de Quintana Roo.
+SEGUNDO. Se derogan las disposiciones vigentes que contravengan lo dispuesto en el presente Decreto.
