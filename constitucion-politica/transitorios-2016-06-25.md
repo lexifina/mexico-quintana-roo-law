@@ -13,6 +13,6 @@ TERCERO. (DEROGADO POR TRANSITORIO CUARTO DE LA DECLARATORIA DE DECRETO NÚMERO:
 CUARTO. Las referencias que se hagan en otras leyes de la entidad a la Procuraduría General de Justicia o al Procurador General de Justicia del Estado, se entenderán ahora a la Fiscalía General del Estado y al Fiscal General del Estado, respectivamente.
 (DEROGADO SEGUNDO PÁRRAFO POR TRANSITORIO CUARTO DE LA DECLARATORIA DE DECRETO NÚMERO: 446 POR EL QUE SE REFORMAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO, P.O. 1 DE AGOSTO DE 2016)
 QUINTO. Los porcentajes de presupuesto de egresos establecidos para el Poder Legislativo, el Poder Judicial y órganos autónomos constitucionales, de acuerdo con lo establecido en el presente decreto, deberán aplicarse a partir del Presupuesto de Egresos del Estado, para el ejercicio fiscal 2017.
-SEXTO. Por esta única ocasión, quien ejerce la titularidad de la Presidencia del Tribunal Superior de Justicia del Estado a la entrada en vigor del presente decreto, podrá participar en el proceso de designación siguiente como Presidente del Tribunal Superior de Justicia del Estado.
+SEXTO. (DEROGADO, P.O. 21 DE OCTUBRE DE 2016)
 SÉPTIMO. Lo dispuesto en el artículo 102 de este decreto, entrará en vigor a los quince días hábiles posteriores a la entrada en vigor de este decreto.
 OCTAVO. Se derogan las disposiciones que se opongan al presente decreto.
