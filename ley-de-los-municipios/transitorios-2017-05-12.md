@@ -1,0 +1,6 @@
+P.O. 12 DE MAYO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 057 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE LOS MUNICIPIOS DEL ESTADO DE QUINTANA ROO, EN MATERIA DE DISCIPLINA FINANCIERA".]
+PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo, salvo por lo previsto en los transitorios siguientes.
+SEGUNDO. Las disposiciones relacionadas con el equilibrio presupuestario y la responsabilidad hacendaria de los Municipios contenidas en los artículos 230 Bis, 233 segundo, tercer y cuarto párrafos, 233 Bis y 233 Ter, entrarán en vigor para efectos del ejercicio fiscal 2018, con las salvedades previstas en el artículo transitorio siguiente y los que apliquen de acuerdo al artículo 21 de la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios.
+TERCERO. El porcentaje a que hace referencia el artículo 233 Bis relativo a los adeudos del ejercicio fiscal anterior de los Municipios, será del 5.5 por ciento para el año 2018, 4.5 por ciento para el año 2019, 3.5 por ciento para el año 2020 y, a partir del año 2021 se estará al porcentaje establecido en dicho artículo.
+CUARTO. Se derogan todas las disposiciones que se opongan al presente Decreto.
