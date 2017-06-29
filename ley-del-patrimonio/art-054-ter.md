@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE JUNIO DE 2017)
+Artículo 54 Ter.- La Agencia tendrá por objeto la administración eficaz y el óptimo aprovechamiento del patrimonio inmobiliario de la Administración Pública Estatal, así como la constitución, administración y disposición estratégica de las reservas territoriales del dominio privado del Estado y las Asociaciones Público Privadas, con el propósito de coadyuvar a la consecución de los fines del Gobierno del Estado.
