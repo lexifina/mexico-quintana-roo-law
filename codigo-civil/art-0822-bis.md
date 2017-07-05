@@ -1,3 +1,1 @@
-(ADICIONADO, P.O. 14 DE MAYO DE 2010)
-Artículo 822 BIS.- En la demanda de divorcio, los cónyuges podrán demandar del otro, una indemnización de hasta el 50% del valor de los bienes que hubiere adquirido durante el matrimonio, siempre que, hubieren estado casados bajo el régimen de separación de bienes; el demandante se haya dedicado en el lapso que duró et matrimonio, preponderantemente al desempeño del trabajo del hogar y, en su caso, al cuidado de los hijos y que durante el matrimonio, el demandante no haya adquirido bienes propios o habiéndolos adquirido, sean notoriamente menores a los de la contraparte.
-El Juez de lo Familiar resolverá, en la sentencia de divorcio, previa valoración de cada caso. No podrán considerarse para efectos de cuantificar la indemnización, bienes del cónyuge obtenidos por herencia, donación o suerte de la fortuna, aún en los casos en que se hayan recibido durante el matrimonio.
+Artículo 822 BIS.- (DEROGADO, P.O. 4 DE JULIO DE 2017)

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2017)
+ARTICULO 167 BIS.- Se impondrá pena de un año a cuatro años de prisión y de doscientos a quinientos días multa, a aquellas personas que obligadas a informar acerca de los ingresos reales de quienes deban cumplir con todas las obligaciones señaladas en los artículos anteriores, incumplan con la orden judicial de hacerlo o haciéndolo no lo hagan dentro del término ordenado por el Juez u omitan realizar de inmediato el descuento ordenado.

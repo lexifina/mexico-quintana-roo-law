@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2017)
+Artículo 59-K.- El Consejo Consultivo del Instituto analizará, opinará y hará propuestas a la Junta Directiva y al Director General sobre las políticas, programas y acciones públicas para el desarrollo del pueblo maya y las comunidades indígenas. El Consejo Consultivo sesionará de manera semestral y será presidido por un representante indígena, electo democráticamente en sesión plenaria del Consejo.

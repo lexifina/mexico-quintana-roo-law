@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2017)
+Artículo 59-H.- El Director General del Instituto, será designado y removido por el Gobernador del Estado y contará con las unidades administrativas y de representación necesarias para el eficaz cumplimiento de sus funciones. Para poder ser designado en el cargo de Director General se deberá observar lo dispuesto por el artículo 28 de la Ley de las Entidades de la Administración Pública Paraestatal del Estado de Quintana Roo.
+El Director General del Instituto preferentemente dominará la lengua maya y tendrá conocimiento de la identidad y cultura del pueblo maya y las comunidades indígenas.

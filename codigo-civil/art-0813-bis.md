@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 10 DE DICIEMBRE DE 2010)
-Artículo 813 BIS.- El cónyuge que haya recibido violencia familiar, podrá acreditarla mediante el ofrecimiento de las denominadas pruebas preconstituidas que se encuentran en su poder o bien aquellas que obren en instrumentales públicas de instituciones o dependencias que hayan atendido dicha problemática con antelación, para ser tomadas en cuenta por el Juzgador, en los términos del artículo 287 del Código Procedimental de la materia.
+Artículo 813 BIS.- (DEROGADO, P.O. 4 DE JULIO DE 2017)

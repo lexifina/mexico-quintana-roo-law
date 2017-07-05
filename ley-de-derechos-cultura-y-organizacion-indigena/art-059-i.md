@@ -1,0 +1,18 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2017)
+Artículo 59-I.- El Director General del Instituto, además de las facultades y obligaciones que le confiere el artículo 29 de la Ley de las Entidades de la Administración Pública Paraestatal del Estado de Quintana Roo, tendrá las siguientes facultades y obligaciones:
+I. Organizar, programar, dirigir, coordinar, controlar y evaluar los programas, proyectos, servicios y actividades correspondientes a los bienes, servicios y apoyos que el Estado provee a las comunidades indígenas a través del Instituto, así como controlar y evaluar los sistemas de apoyos económicos y de estadísticas en las comunidades indígenas de los resultados de los programas institucionales;
+II. Elaborar el Presupuesto Anual de Operación del Instituto y presentar a las instancias administrativas (sic) Estado los estados financieros, balances ordinarios y extraordinarios, así como los informes anuales y los específicos que se le soliciten;
+III. Conducir la política de atención al pueblo maya y las comunidades indígenas mediante la formulación de programas, procurando que los mismos reconozcan e Incentiven su naturaleza y capacidades para que asuman un papel estratégico en el desarrollo del Estado;
+IV. Coordinar la difusión de los programas del Instituto a través de los medios institucionales y las distintas instancias de servicios que tengan contacto directo con la población destinaria;
+V. Brindar asesoría técnica al Ejecutivo del Estado en todos los temas que son propios del objeto del Instituto;
+VI. Ejercer el presupuesto del Instituto con sujeción a las disposiciones legales, reglamentarias y administrativas aplicables;
+VII. Nombrar y relevar al personal del Instituto, así como administrar los recursos humanos, materiales y presupuestarios de conformidad con las normas de operación vigentes;
+VIII. Ejecutar los programas, proyectos y demás acuerdos aprobados por la Junta Directiva;
+IX. Promover, coordinar y apoyar el establecimiento del Gran Consejo Maya y la participación de los dignatarios mayas en los programas del Instituto;
+X. Dar a conocer a la Junta Directiva las propuestas del Gran Consejo Maya, así como las del Consejo Consultivo del Instituto;
+XI. Coordinar y supervisar la planeación, organización y ejecución de acciones que faciliten la participación del pueblo maya y las comunidades indígenas en actividades de educación, cultura, ciencia y tecnología;
+XII. Representar legalmente al Instituto y ejercer las facultades de dominio, administración, pelitos (sic) y cobranzas, aun aquellas que requieran cláusula especial. Tratándose de actos de dominio se requerirá la autorización previa de la Junta Directiva;
+XIII. Celebrar los contratos, convenios y toda clase de documentos jurídicos relacionados con el objeto y representación del Instituto en los que no se requiera la autorización expresa del Titular del Poder Ejecutivo;
+XIV. Proponer la celebración de convenios con otras instancias de los sectores público, social y privado de la entidad para el beneficio del pueblo maya y las comunidades Indígenas, y en su caso llevar la ejecución de los mismos, así como su incorporación al sector productivo de la Entidad;
+XV. Integrar, validar, proporcionar y rendir los informes, estadísticas y demás datos relacionados con el avance de los programas y presupuestos, que soliciten los integrantes de la Junta Directiva y el Órgano de Control Público y en su caso, reportarlos a la Unidad de Planeación y Administración, de conformidad con los lineamientos establecidos en dicha materia, y
+XVI. Las demás que le confiera la presente Ley, el Reglamento Interior del Instituto, otras disposiciones legales o le sean asignadas por el Titular del Poder Ejecutivo.
