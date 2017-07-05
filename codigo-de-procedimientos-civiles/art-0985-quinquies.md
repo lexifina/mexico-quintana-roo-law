@@ -1,6 +1,4 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO Y SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, P.O. 15 DE MAYO DE 2013)
-Artículo 985-Quinquies.- En la audiencia de avenencia, el Juez tratará de conciliar a las partes, para continuar con el matrimonio. De no obtenerse la conciliación, la audiencia continuará y el Juez escuchará a las partes sobre la propuesta del convenio, en la que se podrán modificar o adicionar las cláusulas del mismo a petición de los interesados.
-(REFORMADO, P.O. 24 DE JULIO DE 2015)
-De manifestar su conformidad con los términos del convenio y, de no haber observación alguna por el juzgador, se aprobará y elevará a la categoría de cosa juzgada, decretando mediante sentencia definitiva la disolución del vínculo matrimonial y, en su caso, la terminación de la sociedad conyugal.
-La aprobación del convenio podrá ser sólo sobre los puntos en que haya consenso, respecto de los restantes se procederá conforme al precepto legal siguiente.
+(REFORMADO, P.O. 4 DE JULIO DE 2017)
+Artículo 985-Quinquies.- Hecha la solicitud y cumplidas las exigencias del artículo anterior, el Juez de Instrucción, citará al Ministerio Público a la audiencia inicial ante el Juez Oral, dentro de un plazo entre ocho y quince días; y la secuencia procesal seguirá las mismas reglas del Título Vigésimo Primero denominado del Procedimiento Oral, resolviéndose mediante sentencia interlocutoria el incidente de pretensiones planteado respecto de los puntos que no hayan sido objeto del consenso.
+La sentencia definitiva que decrete la disolución del vínculo matrimonial será irrecurrible.
+Con los escritos que presenten las partes, se les dará vista para que manifiesten lo que a su interés convenga, opongan defensas y excepciones y ofrezcan los medios de prueba respectivos, por un plazo de cinco días.

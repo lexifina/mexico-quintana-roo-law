@@ -1,3 +1,1 @@
-(REFORMADO, P.O. 24 DE JULIO DE 2015)
-Artículo 985-Septies.- Hecha la solicitud y cumplidas las exigencias del artículo anterior, el Juez de Instrucción, citará al Ministerio Público a la audiencia inicial ante el Juez Oral, dentro de un plazo entre ocho y quince días; y la secuencia procesal seguirá las mismas reglas del Título Vigésimo Primero denominado del Procedimiento Oral, resolviéndose mediante sentencia interlocutoria el incidente de pretensiones planteado respecto de los puntos que no hayan sido objeto del consenso.
-La sentencia definitiva que decrete la disolución del vínculo matrimonial será irrecurrible.
+Artículo 985-Septies.- (DEROGADO, P.O. 4 DE JULIO DE 2017)

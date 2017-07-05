@@ -1,5 +1,4 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 24 DE JULIO DE 2015)
-Artículo 985-Quater.- Presentada la solicitud, el Juez de Instrucción admitirá a trámite la petición, dando vista al otro cónyuge y proveerá sobre las medidas precautorias y provisionales solicitadas o las que estime necesarias para salvaguardar el interés superior de los menores o incapaces.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO Y SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, P.O. 15 DE MAYO DE 2013)
-Además, se señalará día y hora para una audiencia de avenencia que tendrá verificativo después de nueve y antes de quince días, contados a partir de la notificación del propio auto.
+(REFORMADO, P.O. 4 DE JULIO DE 2017)
+Artículo 985-Quater.- De no llegar a un acuerdo sobre la totalidad de los puntos de la propuesta de convenio, o de no asistir a la audiencia respectiva el cónyuge citado, se decretará la disolución del vínculo matrimonial y, en su caso, la terminación de la sociedad conyugal; apercibiendo a las partes en la sentencia definitiva de abstenerse de ocultar, enajenar, dilapidar bienes y efectos patrimoniales generados durante el matrimonio hasta en tanto se liquide la sociedad conyugal.
+En la propia audiencia, se decidirá sobre las medidas precautorias y provisionales, entre otras las referentes a los alimentos, guarda y custodia de menores o incapaces y, régimen de convivencia.
+Se otorgará a las partes un plazo común de cinco días para que conforme a los requisitos de una demanda, formulen sus pretensiones, hechos y ofrezcan sus medios de prueba, respecto de los puntos que no hayan sido objeto de consenso y los demás que estimen convenientes.

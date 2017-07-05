@@ -1,3 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO Y SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, P.O. 15 DE MAYO DE 2013)
-Artículo 985-Bis.- El Divorcio es incausado cuando cualquiera de los conyugues lo solicita, manifestando su voluntad de no querer continuar con el matrimonio, sin que sea necesario señalar la razón que lo motiva, el cual podrá pedirse después de un año de haberse celebrado.
+(REFORMADO, P.O. 4 DE JULIO DE 2017)
+Artículo 985-Bis.- Presentada la demanda, el Juez de Instrucción la admitirá a trámite, dando vista al otro cónyuge y proveerá sobre las medidas precautorias y provisionales solicitadas o las que estime necesarias para salvaguardar el interés superior de los menores o incapaces.
+Además, se señalará día y hora para una audiencia de avenencia que tendrá verificativo después de nueve y antes de quince días, contados a partir de la notificación del propio auto.
