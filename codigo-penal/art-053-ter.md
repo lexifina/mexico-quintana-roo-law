@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE JULIO DE 2017)
+ARTICULO 53 Ter.- En caso de delitos cometidos en el seno, con la colaboración, a través o por medio de empresas, organizaciones, grupos o cualquier otra clase de entidades o agrupaciones de personas que, por carecer de personalidad jurídica, no estén comprendidas en las fracciones I y II del artículo 18 Bis, se les podrá aplicar las penas o medidas de seguridad previstas en el artículo 21 Bis de este Código.

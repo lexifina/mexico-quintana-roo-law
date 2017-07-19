@@ -1,0 +1,3 @@
+P.O. 19 DE JULIO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO: 088 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DEL CÓDIGO PENAL PARA EL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+ÚNICO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.

@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 30 DE JUNIO DE 2009)
-ARTICULO 149-BIS.- Si se comete el delito de abigeato sobre un ganado que por sus particularidades cuente al momento de cometerse el delito, con un valor comercial superior a los cuatrocientos días de salario mínimo vigente en el Estado, la pena se aumentará hasta una mitad más de la que corresponda en razón del tipo de ganado y de la cantidad de cabezas hurtadas.
+(REFORMADO, P.O. 19 DE JULIO DE 2017)
+ARTICULO 149-Bis.- Si se comete el delito de abigeato sobre un ganado que por sus particularidades cuente al momento de cometerse el delito, con un valor comercial superior a las cuatrocientas veces el valor diario de la Unidad de Medida y Actualización vigente, la pena se aumentará hasta una mitad más de la que corresponda en razón del tipo de ganado y de la cantidad de cabezas hurtadas.
