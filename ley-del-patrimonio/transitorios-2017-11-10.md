@@ -1,0 +1,4 @@
+P.O. 10 DE NOVIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 114 POR EL QUE SE ADICIONAN LOS PÁRRAFOS SEGUNDO, TERCERO Y CUARTO AL ARTÍCULO 1785 DEL CÓDIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO; Y SE REFORMA EL PÁRRAFO PRIMERO DEL ARTÍCULO 106 DE LA LEY DEL PATRIMONIO DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
