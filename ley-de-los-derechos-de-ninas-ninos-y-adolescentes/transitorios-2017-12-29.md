@@ -1,0 +1,7 @@
+P.O. 29 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 115 POR EL QUE SE REFORMA EL PRIMER PÁRRAFO DEL ARTÍCULO 113 DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. El titular de la Secretaría Ejecutiva del Sistema Estatal de Protección de los Derechos de Niñas, Niños y Adolescentes que se encuentra en funciones a la entrada en vigor del presente Decreto continuará en su encargo en los mismos términos en los que fuese designado con el fin de dar continuidad a sus trabajos.
+TERCERO. El Titular del Ejecutivo del Estado contará con un plazo de cuarenta días naturales, contados a partir de la fecha de publicación del presente Decreto, para la emisión del Reglamento, Manual de Organización y Procedimientos correspondientes del órgano administrativo en referencia.
+CUARTO. El Titular del Ejecutivo del Estado contará con un plazo de cuarenta días naturales, contados a partir de la fecha de publicación del presente Decreto, a efecto de realizar las ecuaciones pertinentes para asignar personal y presupuesto para que la Secretaría Ejecutiva del Sistema Estatal de Protección de los Derechos de Niñas, Niños y Adolescentes pueda cumplir con sus funciones.
+QUINTO. Se derogan todas las disposiciones que contravengan lo dispuesto en el presente Decreto.
