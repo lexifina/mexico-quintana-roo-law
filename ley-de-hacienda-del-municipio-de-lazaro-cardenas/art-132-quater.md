@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 132 Quáter.- El pago del derecho de saneamiento ambiental se causará en razón de $20.00 (VEINTE PESOS 00/100 M.N.) por cuarto y/o habitación, por noche de ocupación, al momento en el que el pago de la ocupación de la habitación se efectúe por adelantado, o al momento del Registro (check in), o al momento de la salida (check out) si el pago es después de prestado el servicio.

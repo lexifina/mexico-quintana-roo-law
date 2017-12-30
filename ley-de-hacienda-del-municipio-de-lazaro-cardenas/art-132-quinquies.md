@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 132 Quinquies.- Los retenedores deberán de proporcionar mensualmente, mediante formas aprobadas por la Tesorería Municipal a través de los medios electrónicos dispuestos por ésta, la información que se refiere a las habitaciones ocupadas por la prestación de ese servicio, de las operaciones practicadas con personas físicas y morales, a más tardar el día diecisiete del mes inmediato posterior al que corresponda dicha información, acompañado del entero del derecho correspondiente.

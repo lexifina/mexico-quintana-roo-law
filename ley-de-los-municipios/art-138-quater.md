@@ -6,7 +6,9 @@ III. Determinar y proponer los elementos que permitan la adecuación e integraci
 IV. Estudiar y emitir las recomendaciones necesarias para asegurar la congruencia de normas, sistemas y procedimientos del servicio público de carrera municipal, con los instrumentos del plan de desarrollo municipal;
 V. Evaluar periódicamente los resultados de las acciones orientadas a la Instrumentación del servicio público de carrera municipal; y
 VI. Las demás, que señale la Ley del Servicio Público de Carrera del Estado de Quintana Roo.
+(DEROGADO CON LOS CAPÍTULOS Y ARTÍCULOS QUE LO INTEGRAN, P.O. 27 DE DICIEMBRE DE 2017)
 Título Décimo
 Actos Administrativos
+(DEROGADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 27 DE DICIEMBRE DE 2017)
 Capítulo I
 De los Actos Administrativos
