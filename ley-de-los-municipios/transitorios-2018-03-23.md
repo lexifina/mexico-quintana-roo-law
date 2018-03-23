@@ -1,0 +1,7 @@
+P.O. 23 DE MARZO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 160 POR EL QUE SE EXPIDE LA LEY DE PARTICIPACIÓN CIUDADANA DEL ESTADO DE QUINTANA ROO Y POR EL QUE SE REFORMAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE LOS MUNICIPIOS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. La presente ley entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se abroga la Ley de Participación Ciudadana del Estado de Quintana Roo, expedida mediante el Decreto número 149 de la H. X Legislatura del Estado y publicada en el Periódico Oficial del Gobierno del Estado de Quintana Roo el 14 de marzo de 2005.
+TERCERO. En un plazo no mayor a ciento ochenta días naturales siguientes a la entrada en vigor del presente Decreto, los Ayuntamientos realizarán las adecuaciones o adiciones reglamentarias que correspondan en materia de silla ciudadana, consulta vecinal, presupuesto participativo, audiencias vecinales, consejo consultivo ciudadano, comités ciudadanos y comités de vecinos, en los términos que establezca la Ley de Participación Ciudadana del Estado de Quintana Roo que se expide mediante el presente Decreto y la Ley de los Municipios del Estado de Quintana Roo.
+Asimismo, en el plazo señalado, deberán instalarse los consejos consultivos ciudadanos y los comités de vecinos.
+CUARTO. Se derogan todas las disposiciones que se opongan a la presente Ley.
