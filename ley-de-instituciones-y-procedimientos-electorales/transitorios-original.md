@@ -22,6 +22,10 @@ II. La duración del cargo de Gobernador a elegirse en el año 2022, será de ci
 SEXTO. El Instituto Electoral y el Tribunal Electoral de Quintana Roo, en un plazo no mayor a noventa días contados a partir de la publicación de la presente Ley, deberá armonizar su normatividad conforme a la presente Ley.
 SÉPTIMO. Los procedimientos iniciados por las autoridades electorales administrativas o jurisdiccionales, con anterioridad o que se encuentren en trámite a la entrada en vigor de la presente ley, serán concluidos bajo la competencia de los mismos, conforme a las disposiciones aplicables vigentes al momento de su inicio.
 OCTAVO. Se derogan las disposiciones que se opongan a la presente Ley.
+(ADICIONADO, P.O. 21 DE JUNIO DE 2018)
+NOVENO. La elección ordinaria local a celebrarse el primer domingo de junio del año 2019 para la renovación del Poder Legislativo del Estado de Quintana Roo, se sujetará a lo siguiente:
+I. El Proceso Electoral dará inicio con la primera sesión que el Consejo General del Instituto Electoral de Quintana Roo celebre en la primera semana del mes de enero del año 2019, y
+II. El Instituto Electoral de Quintana Roo podrá ajustar las fechas para la realización de los actos preparatorios de la elección observando invariablemente las etapas y plazos establecidos en la ley.
 SALÓN DE SESIONES DEL HONORABLE PODER LEGISLATIVO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS QUINCE DÍAS DEL MES DE SEPTIEMBRE DEL AÑO DOS MIL DIECISIETE.
 DIPUTADO PRESIDENTE:
 LIC. EDUARDO LORENZO MARTÍNEZ ARCILA.
@@ -36,3 +40,4 @@ C.P. CARLOS MANUEL JOAQUÍN GONZÁLEZ
 EL SECRETARIO DE GOBIERNO DEL ESTADO DE QUINTANA ROO.
 RUBRICA
 LIC. FRANCISCO XAVIER LÓPEZ MENA
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
