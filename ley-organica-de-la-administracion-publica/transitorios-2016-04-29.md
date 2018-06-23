@@ -1,5 +1,0 @@
-P.O. 29 DE ABRIL DE 2016.
-[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 396 POR EL CUAL SE REFORMAN LOS ARTÍCULOS 207 U, 207 V, 207 W Y 207 X TRASLADANDO EL CONTENIDO DE LOS MISMOS AL CAPÍTULO XXX DENOMINADO "POR LOS SERVICIOS QUE PRESTA LA SECRETARÍA DE SEGURIDAD PÚBLICA", Y SE DEROGA EL CAPÍTULO XXXI DENOMINADO "POR LOS SERVICIOS QUE PRESTA LA SECRETARÍA DE GOBIERNO", TODOS DE LA LEY DE HACIENDA DEL ESTADO DE QUINTANA ROO; Y SE REFORMA LA FRACCIÓN XXIV DEL ARTÍCULO 31; SE REFORMAN LAS FRACCIONES XXVIII, XXIX Y SE ADICIONA LA FRACCIÓN XXX DEL ARTÍCULO 46 TODOS DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE QUINTANA ROO".]
-PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
-SEGUNDO. Se deberán realizar las adecuaciones correspondientes al Reglamento Interior de la Secretaría de Gobierno del Poder Ejecutivo del Estado de Quintana Roo y a las demás disposiciones reglamentarias que regulen sobre los Servicios Especiales de Vigilancia, en los términos del presente decreto.
-TERCERO. Se derogan todas las disposiciones que se opongan al presente Decreto.
