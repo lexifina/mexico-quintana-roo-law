@@ -1,8 +1,0 @@
-P.O. 30 DE AGOSTO DE 2002.
-ARTICULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado, salvo lo dispuesto en los siguientes transitorios.
-ARTICULO SEGUNDO.- El Organo Superior de Fiscalización del Estado iniciará sus funciones el 1º de enero del año 2003. La revisión de la Cuenta Pública y las funciones de fiscalización a que se refieren las fracciones I a V del artículo 77 reformado por este Decreto, se llevarán a cabo, en los términos del mismo, a partir de la revisión de la Cuenta Pública correspondiente al año 2004.
-El Organo Superior de Fiscalización del Estado revisará la Cuenta Pública de los años anteriores al 2004, conforme a las disposiciones vigentes antes de la entrada en vigor de este Decreto.
-Las referencias que se hacen en dichas disposiciones a la Contaduría Mayor de Hacienda del Poder Legislativo, se entenderán hechas al Organo Superior de Fiscalización del Estado.
-ARTICULO TERCERO.- En tanto el Organo Superior de Fiscalización del Estado no empiece a ejercer las atribuciones a que se refiere este Decreto, la Contaduría Mayor de Hacienda continuará ejerciendo las atribuciones que actualmente tiene conforme a su Ley Orgánica y demás disposiciones jurídicas aplicables vigentes hasta antes de la entrada en vigor del presente Decreto.
-Los empleados y trabajadores de la Contaduría Mayor de Hacienda no serán afectados en forma alguna en sus derechos laborales con motivo de la entrada en vigor de este Decreto y de las leyes que en consecuencia se emitan.
-Una vez creado el Organo Superior de Fiscalización del Estado, todos los recursos humanos y materiales en general de la Contaduría Mayor de Hacienda, pasarán a formar parte de dicho Organo.

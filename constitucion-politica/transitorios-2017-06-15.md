@@ -1,4 +1,0 @@
-P.O. 15 DE JUNIO DE 2017.
-[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO: 063 "POR EL QUE SE REFORMAN EL ARTÍCULO 29 Y EL NUMERAL 1 DE LA FRACCIÓN III DEL ARTÍCULO 49, AMBOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO, EN MATERIA DE DESINDEXACIÓN DEL SALARIO MÍNIMO".]
-PRIMERO. El presente Decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
-SEGUNDO. A la fecha de entrada en vigor del presente Decreto, todas las menciones al salario mínimo como unidad de cuenta, índice, base, medida o referencia para determinar la cuantía de las obligaciones y supuestos previstos en las leyes estatales, así como en cualquier disposición jurídica que emane de la Constitución y de cualquier ordenamiento estatal, se entenderán referidas a la Unidad de Medida y Actualización.
