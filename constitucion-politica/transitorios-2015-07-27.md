@@ -1,0 +1,9 @@
+P.O. 27 DE JULIO DE 2015.
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. La Legislatura del Estado, deberá armonizar la legislación en materia de transparencia y acceso a la información pública dentro del plazo establecido por el artículo quinto transitorio de la Ley General de Transparencia y Acceso a la Información Pública, publicada en el Diario Oficial de la Federación en fecha 4 de mayo de 2015.
+TERCERO. Los Consejeros Ciudadanos que conforman la Junta de Gobierno del Instituto de Acceso a la Información y Protección de Datos Personales de Quintana Roo, continuarán con el carácter de Comisionados de este órgano garante. La duración y titularidad de sus cargos se sujetará a los siguientes períodos, los cuales se contarán a partir de la entrada en vigor del presente decreto:
+a) El Consejero Presidente nombrado mediante declaratoria 017 de la H. XII Legislatura publicada en el Periódico Oficial del Estado en fecha 30 de julio de 2010: Siete años como comisionado Presidente.
+b) La Consejera nombrada mediante declaratoria 009 de la H. XII Legislatura publicada en el Periódico Oficial del Estado en fecha 29 de julio de 2009: Seis años como comisionada.
+c) La Consejera nombrada mediante declaratoria 001 de la H. XIII Legislatura publicada en Periódico Oficial del Estado en fecha 26 de julio de 2011: Cinco años como comisionada.
+Para efectos de este artículo, si se presentara la ausencia o falta definitiva de algún comisionado, la Legislatura del Estado o la Diputación Permanente, en su caso, nombrará un comisionado que concluya el período de que se trate.
+CUARTO. Hasta en tanto la Legislatura del Estado lleve a cabo la armonización a que se refiere el artículo segundo transitorio de este Decreto, se continuará aplicando la Ley de Transparencia y Acceso a la Información Pública del Estado de Quintana Roo.

@@ -1,0 +1,3 @@
+P.O. 11 DE DICIEMBRE DE 2009.
+DECRETO No. 198, POR EL QUE SE REFORMAN LOS ARTÍCULOS SEGUNDO Y TERCERO TRANSITORIOS DEL DECRETO No. 100 QUE MODIFICÓ LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE QUINTANA ROO.
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor el mismo día de su publicación en el Periódico Oficial del Estado de Quintana Roo.

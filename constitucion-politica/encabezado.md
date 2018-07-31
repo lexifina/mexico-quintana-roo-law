@@ -1,11 +1,12 @@
-ACUERDO GENERAL 18/2022, DEL PLENO DEL CONSEJO DE LA JUDICATURA FEDERAL, RELATIVO A LA CONCLUSIÓN DE FUNCIONES DEL DECIMOSÉPTIMO TRIBUNAL COLEGIADO EN MATERIA DE TRABAJO DEL PRIMER CIRCUITO, CON RESIDENCIA EN LA CIUDAD DE MÉXICO
-Acuerdo publicado en el Número 26 del Diario Oficial de la Federación, el viernes 30 de septiembre de 2022.
-Al margen un sello con el Escudo Nacional, que dice: Estados Unidos Mexicanos.- Consejo de la Judicatura Federal.- Secretaría Ejecutiva del Pleno.
-ACUERDO GENERAL 18/2022, DEL PLENO DEL CONSEJO DE LA JUDICATURA FEDERAL, RELATIVO A LA CONCLUSIÓN DE FUNCIONES DEL DECIMOSÉPTIMO TRIBUNAL COLEGIADO EN MATERIA DE TRABAJO DEL PRIMER CIRCUITO, CON RESIDENCIA EN LA CIUDAD DE MÉXICO.
-CONSIDERANDO
-PRIMERO. En términos de lo dispuesto por los artículos 94, párrafo segundo, 100, párrafos primero y noveno, de la Constitución Política de los Estados Unidos Mexicanos; 73 y 86, fracción II, de la Ley Orgánica del Poder Judicial de la Federación, el Consejo de la Judicatura Federal es el órgano encargado de la administración, vigilancia, disciplina y carrera judicial del Poder Judicial de la Federación, con independencia técnica, de gestión y para emitir sus resoluciones; además, está facultado para expedir acuerdos generales que permitan el adecuado ejercicio de sus funciones;
-SEGUNDO. Los artículos 94, párrafo sexto, de la Constitución Política de los Estados Unidos Mexicanos; 86, fracciones IV y XXIV; y 124 de la Ley Orgánica del Poder Judicial de la Federación establecen que son atribuciones del Consejo de la Judicatura Federal determinar el número, límites territoriales y, en su caso, especialización por materia de los Tribunales Colegiados en cada uno de los Circuitos y Regiones en que se divide el territorio de la República Mexicana; así como dictar las disposiciones necesarias para regular el turno de los asuntos de la competencia de los Tribunales de Circuito o Juzgados de Distrito, cuando en un mismo lugar haya varios de ellos. Esta atribución la ejerce a través de la Comisión de Creación de Nuevos Órganos, en términos del artículo 42, fracción III, del Acuerdo General del Pleno del Consejo de la Judicatura Federal, que reglamenta la organización y funcionamiento del propio Consejo;
-TERCERO. El artículo 17, párrafo segundo, de la Constitución Política de los Estados Unidos Mexicanos establece que toda persona tiene derecho a que se le administre justicia por tribunales que estarán expeditos para impartirla en los plazos y términos que fijen las leyes; y
-CUARTO. El Pleno del Consejo de la Judicatura Federal, en sesión de 7 de septiembre de 2022, aprobó el estudio relativo a la conclusión de funciones del Decimoséptimo Tribunal Colegiado en Materia de Trabajo del Primer Circuito, con residencia en la Ciudad de México.
-Por lo anterior, se expide el siguiente
-ACUERDO
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
+CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO
+Constitución publicada en el Periódico Oficial del Estado de Quintana Roo, el 12 de enero de 1975.
+GOBIERNO DEL ESTADO DE QUINTANA ROO
+PODER EJECUTIVO
+Decreto por el que se promulga la Constitución Política del Estado Libre y Soberano de Quintana Roo.
+David Gustavo Gutiérrez Ruiz, Gobernador Provisional del Estado de Quintana Roo a sus habitantes sabed:
+Que la H. Legislatura Constituyente del Estado Libre y Soberano de Quintana Roo electa el 10 de Noviembre de 1974, de conformidad a lo dispuesto en el artículo cuarto transitorio del Decreto expedido por Luis Echeverría Alvarez, Presidente Constitucional de los Estados Unidos Mexicanos el 7 de octubre anterior y publicado en el Diario Oficial de la Federación al día siguienteha (sic) tenido a bien expedir la siguiente
+CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO
+TITULO PRIMERO
+CAPITULO UNICO
+Principios Constitucionales

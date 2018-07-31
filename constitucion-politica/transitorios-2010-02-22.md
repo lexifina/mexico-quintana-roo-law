@@ -1,0 +1,5 @@
+P.O. 22 DE FEBRERO DE 2010.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor el mismo día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+ARTÍCULO SEGUNDO.- El nuevo esquema de revisión y fiscalización de la Cuenta Pública que contiene el presente Decreto, se aplicará a partir del ejercicio fiscal correspondiente al Ejercicio Fiscal de 2010.
+ARTÍCULO TERCERO.- La Legislatura del Estado llevará a cabo la elección del Titular del Órgano de Fiscalización Superior del Estado y de su suplente, en los términos previstos en los párrafos tercero, cuarto y quinto del artículo 77 que se reforma mediante el presente Decreto, a más tardar el día 15 de abril del año 2010. Hasta en tanto, continuará en sus funciones el actual Auditor Superior del Estado, sin perjuicio de que, en su caso, sea electo con base al presente Decreto y de conformidad con el procedimiento que establezca la ley.
+ARTÍCULO CUARTO.- Las referencias que en las leyes se hagan al Órgano Superior de Fiscalización del Estado, se entenderán hechas al Órgano de Fiscalización Superior del Estado.

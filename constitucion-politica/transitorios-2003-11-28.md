@@ -1,0 +1,3 @@
+P.O. 28 DE NOVIEMBRE DE 2003.
+ARTICULO PRIMERO.- Las reformas contenidas en el presente Decreto entrarán en vigor al día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado.
+ARTICULO SEGUNDO.- Los actuales Consejero Presidente y los Consejeros Electorales Propietarios y Suplentes del Instituto Electoral de Quintana Roo, así como el Magistrado Presidente y los Magistrados Numerarios del Tribunal Electoral de Quintana Roo, continuarán en sus cargos en los términos previstos en la reforma al artículo 49, fracción II, párrafo séptimo, de la Constitución Política del Estado Libre y Soberano de Quintana Roo, contenida en el presente Decreto.
