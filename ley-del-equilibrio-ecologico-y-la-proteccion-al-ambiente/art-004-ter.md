@@ -5,6 +5,6 @@ II. Proponer la creación de un fondo estatal de protección al ambiente para la
 III. Promover la participación ciudadana en materia ambiental a través de los órganos de representación ciudadana e instrumentos de participación ciudadana, así como de las organizaciones sociales, pueblos indígenas, ejidos, comunidades, empresas e instituciones académicas;
 IV. Proponer el establecimiento y aplicación de incentivos e instrumentos económicos que promuevan la ejecución de acciones para el cumplimiento de la normatividad ambiental de forma voluntaria y con probado desempeño ambiental;
 V. Celebrar convenios o acuerdos de coordinación con la Federación, con el objeto de que el Estado asuma el ejercicio de las funciones que señalan las leyes generales en materia ambiental;
-VI. Celebrar convenios mediante los cuales obtengan recursos materiales y económicos para realizar Investigaciones pertinentes a la problemática ambiental y de cambio climático del Estado;
+VI. Celebrar convenios mediante los cuales se obtengan recursos materiales y económicos para realizar Investigaciones pertinentes a la problemática ambiental y de cambio climático del Estado;
 VII. Expedir los decretos que establezcan Áreas Naturales Protegidas Estatales; VIII. Expedir los ordenamientos y demás disposiciones necesarias para proveer el cumplimiento de la presente Ley; y
 IX. Las demás que conforme a esta Ley le correspondan.

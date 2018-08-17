@@ -13,6 +13,8 @@ X.- Elaborar recomendaciones para mejorar el marco jurídico ambiental vinculado
 XI.- Promover mecanismos de consulta y participación ciudadana en materia de medio ambiente, recursos naturales y desarrollo sustentable, que fomente el ejercicio de los derechos ciudadanos en esta materia;
 XII.- Coordinarse con organismos homólogos de carácter estatal, regional, nacional e internacional, a fin de intercambiar experiencias, acciones y estrategias que puedan resultar mutuamente beneficiosas, y
 XIII.- Las demás que sean necesarias para la consecución de sus fines, de objeto de esta Ley y estén previstas en otros ordenamientos.
+(ADICIONADO, P.O. 16 DE AGOSTO DE 2018)
+En los procesos de consulta relativos a la evaluación, formulación y modificación de los Programas de Ordenamiento Ecológico, el Consejo Consultivo de Ecología del Estado deberá sesionar en acuerdo con el Consejo Estatal de Ordenamiento Territorial, Ecológico y Desarrollo Urbano Sustentable, a que se refiere la Ley de Asentamientos Humanos, Ordenamiento Territorial y Desarrollo Urbano del Estado de Quintana Roo.
 (REFORMADA SU DENOMINACIÓN, P.O. 15 DE FEBRERO DE 2016)
 CAPITULO IX
 Denuncia en materia Ambiental
