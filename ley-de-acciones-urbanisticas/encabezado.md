@@ -1,0 +1,4 @@
+LEY DE ACCIONES URBANÍSTICAS DEL ESTADO DE QUINTANA ROO
+Ley publicada en el Número 108 Extraordinario del Periódico Oficial del Estado de Quintana Roo, el jueves 16 de agosto de 2018.
+LA HONORABLE XV LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
+DECRETA:
