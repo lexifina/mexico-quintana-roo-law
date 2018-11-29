@@ -27,7 +27,7 @@ Para los efectos de coordinación con las entidades, se considerarán derechos, 
 También se consideran como derechos para los efectos de este Artículo, las contribuciones u otros cobros, cualquiera que sea su denominación, que tengan las características de derechos de acuerdo con el Código Fiscal de la Federación, aún cuando se cobren por concepto de aportaciones, cooperaciones, donativos, productos, aprovechamientos o como garantía de pago por posibles infracciones.
 SEGUNDO.- Esta Ley entrará en vigor a partir del 1° de Enero del año 2004, previa publicación en el Periódico Oficial del Gobierno del Estado.
 TERCERO.- Para la determinación del impuesto Predial en el ejercicio fiscal 2004, en el Municipio de Cozumel, se aplicará la tabla del cálculo anual del mencionado impuesto, siendo el siguiente:
-(VEASE ARCHIVO ANEXO)
+(VÉASE ARCHIVO ANEXO)
 CUARTO.- Para la determinación del impuesto Predial en el ejercicio fiscal 2004, en el Municipio de Othón P. Blanco, se aplicará la tabla del cálculo anual del mencionado impuesto, siendo el siguiente:
 TASAS APLICABLES PARA EL CALCULO DEL IMPUESTO PREDIAL PARA EL MUNICIPIO DE OTHON P. BLANCO
 Clasificados de prediosTasa al millar
