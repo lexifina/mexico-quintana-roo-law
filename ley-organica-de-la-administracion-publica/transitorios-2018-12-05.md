@@ -1,0 +1,7 @@
+P.O. 5 DE DICIEMBRE DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 268 POR EL QUE SE REFORMAN, DEROGAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Con fundamento en el artículo 18 de la Ley de Movilidad del Estado de Quintana Roo, el Instituto de Movilidad del Estado de Quintana Roo, queda sectorizado a la Secretaría de Desarrollo Territorial Urbano Sustentable.
+TERCERO. Los asuntos a cargo de la Dirección de Comunicaciones y Transportes de la Secretaría de Infraestructura y Transporte que no se encuentren iniciados, serán transmitidos al Instituto de Movilidad del Estado de Quintana Roo, y los asuntos que se encontraren pendientes de resolución al momento de entrar en vigor este Decreto, serán despachados por esta última instancia, conforme a las atribuciones que este mismo ordenamiento le señala.
+CUARTO. Las atribuciones que en otras leyes y en reglamentos se otorgan a la Secretaría de Infraestructura y Transporte para sus funciones administrativas de Transporte y sean transmitidos a la Secretaría de Desarrollo Territorial Urbano Sustentable, se tendrán por conferidas a ésta última, las que ejercerá con base en lo que dispone el presente ordenamiento.
+QUINTO. Se derogan todas las disposiciones de igual o menor jerarquía, que se opongan a lo dispuesto por este Decreto.
