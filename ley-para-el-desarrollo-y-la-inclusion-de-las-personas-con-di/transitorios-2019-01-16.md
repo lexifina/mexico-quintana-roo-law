@@ -1,0 +1,8 @@
+P.O. 16 DE ENERO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 299 POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY PARA EL DESARROLLO Y LA INCLUSIÓN DE LAS PERSONAS CON DISCAPACIDAD DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Una vez en funciones el Instituto, el Consejo Consultivo para personas con Discapacidad, creado mediante Decreto 292 publicado en el Periódico Oficial del Estado de Quintana Roo de fecha 30 de julio de 2013, quedará sin efectos.
+TERCERO. La Secretaría de Finanzas y Planeación definirá y aplicará los procedimientos y mecanismos necesarios para la asignación de recursos al Instituto para el Desarrollo y la Inclusión de las Personas con Discapacidad del Estado de Quintana Roo, conforme a sus atribuciones.
+CUARTO. La Junta Directiva del Instituto para el Desarrollo y la Inclusión de las Personas con Discapacidad del Estado de Quintana Roo, deberá quedar instalada dentro de los 30 días siguientes a la entrada en funciones del Instituto.
+QUINTO. La Junta Directiva del Instituto para el Desarrollo y la Inclusión de las Personas con Discapacidad del Estado de Quintana Roo, deberá expedir el estatuto orgánico del Instituto dentro de los 180 días hábiles siguientes a su constitución.
+SEXTO. El Director o Directora del Instituto contará con un plazo de 90 días contados a partir de su nombramiento para instalar el Consejo Consultivo para el Desarrollo y la Inclusión de las Personas con Discapacidad del Estado de Quintana Roo.
