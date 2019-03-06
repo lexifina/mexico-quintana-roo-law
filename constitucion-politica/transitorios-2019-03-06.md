@@ -1,0 +1,6 @@
+P.O. 6 DE MARZO DE 2019.
+[N. DE E. TRANSITORIOS DE LA "DECLARATORIA NÚMERO: 010 POR EL (SIC) QUE SE REFORMAN, DEROGAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+PRIMERO. Las reformas y adiciones de los artículos 12, 56 y 68 a que se refiere el presente Decreto entrarán en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Las reformas, derogaciones y adiciones de los artículos 21, 49, 59, 61, 62, 63, 64, 72, 75, la denominación de la Sección Quinta del Capítulo II del Título Quinto, 76, 77, 82, 83, 84, 85, 87, 94, 96, 100, 102, 108, 110, 143 y 164 a que se refiere el presente Decreto entrarán en vigor hasta el día tres de septiembre del año dos mil diecinueve, previa su publicación en el Periódico Oficial del Estado de Quintana Roo.
+TERCERO. En un plazo que no excederá de noventa días naturales siguientes a la publicación en el Periódico Oficial del Estado del presente Decreto, la Legislatura del Estado expedirá la legislación secundaria que regule la organización y el funcionamiento del Poder Legislativo en armonía con el presente Decreto.
+CUARTO. Se derogan todas las disposiciones legales que contravengan lo dispuesto por el presente Decreto.
