@@ -1,0 +1,7 @@
+P.O. 22 DE MARZO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 303 POR EL QUE SE REFORMAN LOS ARTÍCULOS 46, EN SU FRACCIÓN I; 75, EN SU FRACCIÓN XXXVII; Y 131; DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+PRIMERO.- El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Dentro de los treinta días siguientes a la entrada en vigor del presente Decreto, el Ejecutivo del Estado mandará a publicar en el Periódico Oficial del Estado, el mapa oficial del Estado de Quintana Roo conforme a lo que se establece en el artículo 46 de la Constitución Política del Estado Libre y Soberano de Quintana Roo, que se reforma mediante este Decreto.
+TERCERO.- El mapa oficial del Estado de Quintana a que se refiere el artículo transitorio que antecede será de observancia general para los Poderes, Municipios, Órganos Autónomos del Estado y, en general, para todas las entidades y dependencias estatales y municipales, así como para los particulares que publiquen, expongan o hagan uso por cualquier medio del mapa del Estado de Quintana Roo.
+CUARTO.- Una vez publicados el presente Decreto, así como el mapa oficial del Estado de Quintana Roo, en el Periódico Oficial del Estado, deberán ser remitidos por el Ejecutivo del Estado al Instituto Nacional de Estadística y Geografía, para los fines geoestadísticos estatales y municipales que correspondan.
+QUINTO.- Se derogan todas las disposiciones que se opongan al presente Decreto.
