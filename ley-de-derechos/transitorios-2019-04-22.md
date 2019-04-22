@@ -1,0 +1,27 @@
+P.O. 22 DE ABRIL DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 314 POR EL QUE SE REFORMAN, DEROGAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE DERECHOS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente decreto entrará en vigor a partir del día de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. En tanto el Estado de Quintana Roo permanezca adherido al Sistema de Coordinación Fiscal, suscrito mediante convenio y anexos respectivos, con la Secretaría de Hacienda y Crédito Público, quedan en suspenso los siguientes derechos:
+I. Licencias, anuencias previas al otorgamiento de las mismas, en general concesiones, permisos o autorizaciones, o bien obligaciones y requisitos que condicionen el ejercicio de actividades comerciales o industriales y de prestación de servicios. Asimismo, los que resulten como consecuencia de permitir o tolerar excepciones a una disposición administrativa tales como la ampliación de horario, con excepción de las siguientes:
+a) Licencias de construcción.
+b) Licencias o permisos para efectuar conexiones a las redes públicas de agua y alcantarillado.
+c) Licencias para fraccionar o lotificar terrenos.
+d) Licencias para conducir vehículos.
+e) Expedición de placas y tarjeta para la circulación de vehículos.
+f) Licencias, permisos o autorizaciones para el funcionamiento de establecimientos o locales, cuyos giros sean la enajenación de bebidas alcohólicas o la prestación de servicios que incluyan el expendio de dichas bebidas, siempre que se efectúen total o parcialmente con el público en general.
+g) Licencias, permisos o autorizaciones para la colocación de anuncios y carteles o la realización de publicidad, excepto los que se realicen por medio de televisión, radio, periódicos y revistas.
+II. Registros o cualquier acto relacionado con los mismos, a excepción de los siguientes:
+a) Registro Civil
+b) Registro de la Propiedad y del Comercio.
+III. Uso de las vías públicas o la tenencia de bienes sobre las mismas. No se considerarán comprendidos dentro de lo dispuesto en esta fracción los derechos de estacionamiento de vehículos, el uso de la vía pública por comerciantes ambulantes o con puestos fijos o semifijos, ni por el uso o tenencia de anuncios.
+IV. Actos de inspección y vigilancia.
+V. Los conceptos a que se refieren las fracciones anteriores, sin excepción alguna, en relación con las actividades o servicios que realicen o presten las personas respecto del uso, goce, explotación o aprovechamiento de bienes de dominio público en materia eléctrica, de hidrocarburos o de telecomunicaciones.
+Los derechos locales o municipales no podrán ser diferenciales considerando el tipo de actividad a que se dedique el contribuyente, excepto tratándose de derechos diferenciales por los conceptos a los que se refieren los incisos del a) al g) de la fracción I y la fracción III.
+Las certificaciones de documentos, así como la reposición de éstos por el extravío o destrucción parcial o total, no quedará comprendida dentro de lo dispuesto en las fracciones I y II de este artículo. Tampoco quedan comprendidas las concesiones por el uso o aprovechamiento de bienes pertenecientes a las Entidades Federativas o a los Municipios.
+En ningún caso lo dispuesto en este artículo, se entenderá que limita la facultad de los Estados y Municipios para requerir licencias, registros, permisos o autorizaciones, otorgar concesiones y realizar actos de inspección y vigilancia. Para el ejercicio de estas facultades no se podrá exigir cobro alguno, con las salvedades expresamente señaladas en este artículo.
+Para los efectos de coordinación con las Entidades, se considerarán derechos, aun cuando tengan una denominación distinta en la legislación local correspondiente, las contribuciones que tengan las características de derecho conforme al Código Fiscal de la Federación y la Ley de Ingresos de la Federación.
+TERCERO. Todos los ingresos captados por las Entidades con motivo del uso, goce o aprovechamiento de los bienes del dominio público del Estado, así como por recibir servicios que prestan en sus funciones de derecho público, contemplados en la Ley de Derechos del Estado de Quintana Roo contenida en el Decreto 292, publicado en el Periódico Oficial el 31 de diciembre de 2018, con excepción de los recaudados a través de los medios dispuestos por la Secretaría de Finanzas y Planeación, serán considerados ingresos propios.
+A partir de la entrada en vigor del presente decreto, los ingresos citados en el párrafo anterior, deberán ser captados a través de los esquemas de recaudación previstos por la Secretaría de Finanzas y Planeación.
+CUARTO. Los organismos públicos descentralizados tendrán garantizada la devolución de los recursos que generen en términos de la presente ley, con base a los lineamientos emitidos por la titular de la Secretaría de Finanzas y Planeación publicados en la edición número 36 extraordinario, tomo 1, novena época del Periódico Oficial del Estado de Quintana Roo, de fecha 10 de abril del año 2019.
+En el caso de los Poderes, Órganos Constitucionales Autónomos y cualquier otro ente público no previsto en los lineamientos a que hace referencia el párrafo anterior, podrán adherirse a los esquemas de recaudación y reintegro de las contraprestaciones derivadas de los servicios prestados en sus funciones de derecho público.
+QUINTO. Se dejan sin efecto las disposiciones legales de igual o menor jerarquía que se opongan al presente Decreto.
