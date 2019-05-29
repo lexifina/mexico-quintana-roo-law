@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE MAYO DE 2019)
+Artículo 91 Bis. La Comisión Ejecutiva Estatal podrá solicitar la ayuda de la Comisión Ejecutiva Nacional para atender, asistir y, en su caso, cubrir una compensación subsidiaria en términos de esta Ley, en aquellos casos de víctimas de delitos del fuero común o de violaciones a derechos humanos cometidos por servidores públicos del orden estatal o municipal en los supuestos a que se refiere el artículo 88 Bis de la Ley General de Víctimas.
+Los recursos erogados bajo tales supuestos deberán ser reintegrados al Fondo Nacional, por la Comisión Ejecutiva Estatal con cargo al Fondo Estatal, en cuanto éste cuente con los recursos para tal efecto.

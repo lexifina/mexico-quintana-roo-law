@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE MAYO DE 2019)
+Artículo 114 Bis. Cuando la situación lo amerite, en términos de lo establecido en el Reglamento, el Comisionado, previo dictamen a que se refiere el artículo 90 Bis fracción III podrá crear un fondo de emergencia para el otorgamiento de los Recursos de Ayuda, el cual tendrá adjudicado parte de los recursos del Fondo por un tiempo determinado. El ejercicio de los recursos del fondo de emergencia no estará supeditado al dictamen a que se refiere el artículo 90 Bis fracción I de la Ley.

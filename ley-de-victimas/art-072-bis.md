@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE MAYO DE 2019)
+Artículo 72 Bis. La Comisión Ejecutiva Estatal compensará de forma subsidiaria el daño causado a la víctima de los delitos que ameriten prisión preventiva oficiosa o en aquellos casos en que la víctima haya sufrido daño o menoscabo a su libertad, daño o menoscabo al libre desarrollo de su personalidad o si la víctima directa hubiera fallecido o sufrido un deterioro incapacitante en su integridad física o mental como consecuencia del delito, cuando así lo determine la autoridad judicial.
+Cuando la Comisión Ejecutiva Estatal no pueda cubrir la compensación subsidiaria para asegurar su cumplimiento, realizará la solicitud por escrito en términos de lo previsto en la fracción X del artículo 88 de la Ley.
