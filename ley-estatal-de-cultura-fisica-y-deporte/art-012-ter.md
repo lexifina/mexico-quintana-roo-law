@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE JUNIO DE 2019)
+Artículo 12 Ter.- El Gobierno del Estado a través del Organismo Rector de la Cultura Física y el Deporte y las Unidades Administrativas Municipales de Cultura Física y Deporte que forman parte del Sistema Estatal del Deporte, procurarán destinar recursos presupuestarios crecientes, para apoyar la ejecución del programa estatal y municipal en base al deporte, así como los estímulos y apoyos, para la construcción, el mantenimiento y conservación de las instalaciones deportivas de la Entidad y sus municipios.

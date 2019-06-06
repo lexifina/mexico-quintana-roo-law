@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE JUNIO DE 2019)
+Artículo 12 Bis.- La actuación de la Administración Pública Estatal en el ámbito de la cultura física y del deporte, corresponde y será ejercida directamente, por un organismo descentralizado de la administración Pública Estatal del Estado de Quintana Roo, que sera el conductor de la Política Estatal en estas materias, quien contará con personalidad jurídica y patrimonio propio.
