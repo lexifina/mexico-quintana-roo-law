@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE JUNIO DE 2019)
+Artículo 879 Ter.- El Juez, dentro del término de tres días, fijará audiencia mandando citar a las partes interesadas del objeto de la transacción, para que, en su presencia ratifiquen el convenio y las firmas, si es que estas no han sido previamente ratificadas ante Notario Público. En la citada audiencia el juez resolverá respecto de la homologación sometida a su potestad. Para el caso de que no comparezcan las partes a la audiencia respectiva a ratificar el convenio, se ordenará el archivo definitivo del asunto.

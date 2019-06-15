@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 14 DE JUNIO DE 2019)
+Artículo 1004 Ter.- El Juez debe desechar de plano las excepciones diversas a las que el Código Civil, en los artículos 2698, 2699 y 2707 concede al inquilino para no pagar la renta, siendo estas inadmisibles si no se ofrecen con sus pruebas.
+Si las excepciones fueren declaradas procedentes en la misma resolución, dará el Juez por terminada la providencia de lanzamiento y, en su caso, ordenará el levantamiento de los embargos ordenados. De lo contrario, en la sentencia se señalará el plazo para que la desocupe, que será el que falta para cumplirse el señalado por el artículo 1003.
+De declararse procedente el juicio y haber embargado bienes para garantizar las rentas adeudadas, en ejecución de sentencia se procederá al remate de los bienes embargados, para que con el producto de estos se pague al arrendador el importe de las rentas reclamadas, ello ante el Juez de Instrucción.

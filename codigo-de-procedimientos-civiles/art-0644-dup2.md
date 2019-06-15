@@ -1,3 +1,0 @@
-(REFORMADO, P.O. 30 DE ABRIL DE 1997)
-Artículo 644-.O- En el caso de la transmisión de los derechos y obligaciones prevista en el segundo párrafo del Artículo 3108 del Código Civil, se deberá solicitar avalúo del bien para fijar el precio que corresponda a la cosa en el momento de exigirse el pago, debiéndose aplicar en lo conducente lo señalado en el Artículo 523 de este ordenamiento. El deudor puede oponerse a la transmisión alegando las excepciones que tuviere, y ésta oposición se substanciará incidentalmente.
-También pueden oponerse a la venta, los acreedores hipotecarios posteriores, alegando prescripción de la acción hipotecaria.
