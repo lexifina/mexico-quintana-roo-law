@@ -1,0 +1,8 @@
+LEY DEL NOTARIADO PARA EL ESTADO DE QUINTANA ROO
+Ley publicada en el Número Extraordinario del Periódico Oficial del Estado de Quintana Roo, el martes 2 de julio de 2019.
+DECRETO NÚMERO: 333
+POR EL QUE SE EXPIDE LA LEY DEL NOTARIADO PARA EL ESTADO DE QUINTANA ROO.
+LA HONORABLE XV LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
+DECRETA:
+ÚNICO. Se expide la Ley del Notariado para el Estado de Quintana Roo, para quedar como sigue:
+LEY DEL NOTARIADO PARA EL ESTADO DE QUINTANA ROO
