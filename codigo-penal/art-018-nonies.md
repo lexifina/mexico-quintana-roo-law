@@ -12,7 +12,8 @@ IX. Usura, previsto por el artículo 157;
 X. Despojo, previsto por los artículos 158 y 159;
 XI. Daños, previsto por los artículos 161 y 162;
 XII. Peligro de devastación, previsto por el artículo 178;
-XIII. Delito contra el ambiente y la fauna, previsto por el artículo 179;
+(REFORMADA, P.O. 13 DE SEPTIEMBRE DE 2019)
+XIII. Delito contra el ambiente y la fauna, previsto por los artículos 179, 179 Quáter, 179 Quinquies, 179 Sexies;
 XIV. Falsificación de documentos y uso de documentos falsos, previsto por el artículo 189.
 XV. Corrupción de personas menores de edad o de quienes no tienen capacidad para comprender el significado del hecho, previsto por el artículo 191;
 XVI. Uso Ilícito de atribuciones y facultades del servicio público, previsto en el artículo 207 Bis;
@@ -24,5 +25,6 @@ XXI. Quebrantamiento de sellos, previsto por el artículo 218;
 XXII. Fraude procesal, previsto por el artículo 221;
 XXIII. Delitos contra la riqueza forestal del Estado, previsto por el artículo 236;
 XXIV. Cohecho, previsto por el artículo 255;
-XXV. Delitos contra el desarrollo urbano, previsto por el artículo 268; y
+(REFORMADA, P.O. 13 DE SEPTIEMBRE DE 2019)
+XXV. Delitos contra el desarrollo urbano, previsto por los artículos 268 y 269 Bis segundo párrafo;
 XXVI. En los demás casos expresamente previstos en la legislación aplicable.

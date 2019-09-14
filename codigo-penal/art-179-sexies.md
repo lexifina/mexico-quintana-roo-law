@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 13 DE SEPTIEMBRE DE 2019)
+ARTICULO 179-SEXIES.- Se le impondrán de seis meses a cinco años de prisión y de mil a tres mil días multa, al que obtenga una autorización proveniente de cualquier autoridad ambiental del Estado de Quintana Roo o de los Municipios, a partir de información falsa o de uno o más documentos falsos o alterados.
+Se les impondrán de seis meses a tres años de prisión y de veinte a quinientos días multa a los prestadores y laboratorios de servicios ambientales, que proporcionen documentos o información falsa u omitan datos con el objeto de que las autoridades ambientales otorguen o avalen cualquier tipo de permiso, autorización o licencia.

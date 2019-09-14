@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 13 DE SEPTIEMBRE DE 2019)
+ARTICULO 179-QUÁTER.- (SIC) Se le impondrán de tres a nueve años de prisión y de mil a cinco mil días multa, a quien dolosamente haga un uso distinto al permitido del uso de suelo u obtenga un beneficio económico derivado de estas conductas.
+Las penas previstas en el párrafo anterior se aumentarán en una tercera parte, cuando la conducta se lleve a cabo en, o afecte cualquiera de los siguientes lugares:
+I. Un área natural protegida de competencia estatal, de conformidad con las disposiciones jurídicas aplicables;
+II. El suelo de conservación en términos de lo establecido en el programa o programas de ordenamiento ecológico del Estado y municipios aplicables, así como lo establecido en el Programa o Programas de Desarrollo Urbano aplicables;
+Las penas previstas en este artículo se disminuirán en una mitad cuando, las actividades realizadas, aun siendo diferentes a las previstas en el uso de suelo correspondiente, se encuentren previstas en el programa o programas de ordenamiento ecológico Estatal y/o Municipal, o en el Programa o Programas de Desarrollo Urbano aplicables. No se considerará violatorio del uso de suelo el supuesto establecido en el artículo 37 de la Ley de Establecimientos Mercantiles.
