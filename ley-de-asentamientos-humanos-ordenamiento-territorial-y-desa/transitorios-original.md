@@ -11,6 +11,8 @@ NOVENO. En un plazo de un año contado a partir de la entrada en vigor de este D
 DÉCIMO. Durante el Ejercicio Fiscal de 2018, los derechos establecidos en la Ley de Hacienda del Estado de Quintana Roo, por concepto de Constancia de Compatibilidad Urbanística, serán aplicables a las Constancias de Compatibilidad Territorial y al Dictamen de Impacto Territorial, a que se refiere el Capítulo Cuarto del Título Quinto de la Ley de Asentamientos Humanos, Ordenamiento Territorial y Desarrollo Urbano.
 UNDÉCIMO. Para el caso de inmuebles construidos con anterioridad a la vigencia de este Decreto, el régimen de propiedad en condominio podrá constituirse cumpliendo con lo establecido en el artículo 4º de la Ley de Propiedad en Condominio de Inmuebles del Estado y sus disposiciones reglamentarias aplicables.
 DUODÉCIMO. Se derogan todas aquellas disposiciones que se opongan al contenido del presente Decreto.
+(ADICIONADO, P.O. 13 DE SEPTIEMBRE DE 2019)
+DÉCIMO TERCERO. En tanto no sea debidamente publicado el Estatuto Orgánico que determine la organización y estructura del Instituto Quintanarroense de Vivienda, las funciones previstas por el artículo 16 de la Ley de Vivienda del Estado de Quintana Roo, serán ejercidas por el Titular de la Secretaría de Desarrollo Territorial Urbano Sustentable o por la persona que para tal efecto designe.
 Salón de sesiones del Honorable Poder Legislativo, en la ciudad de Chetumal, capital del estado de Quintana Roo, a los dieciséis días del mes de mayo del año dos mil dieciocho.
 DIPUTADO PRESIDENTE:
 PROFR. RAMÓN JAVIER PADILLA BALAM.
@@ -25,3 +27,4 @@ C.P. CARLOS MANUEL JOAQUÍN GONZÁLEZ
 EL SECRETARIO DE GOBIERNO DEL ESTADO DE QUINTANA ROO.
 RUBRICA
 LIC. FRANCISCO XAVIER LÓPEZ MENA
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

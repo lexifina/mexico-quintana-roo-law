@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 8 DE OCTUBRE DE 2012)
-Artículo 47 bis.- La Secretaría promoverá en coordinación con los Centros de Enseñanza que se señalan en el Artículo 47 de la presente ley, el establecimiento de un Padrón de Egresados de Especialidad Turística, el cual deberá mantener actualizado y darlo a conocer en forma anual a los prestadores de servicios turísticos, con la finalidad de que sean éstos, opción para ser contratados de acuerdo a su perfil y aptitudes profesionales.
