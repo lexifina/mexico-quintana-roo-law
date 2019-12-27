@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Los casos no previstos en este Código de Conducta y Prevención de Conflictos de Interés de las y los Servidores Públicos del Instituto Tecnológico Superior de El Mante, serán resueltos por el Comité de Ética, Conducta y Prevención de Conflictos de Interés del Instituto Tecnológico Superior de El Mante, a propuesta de su presidente o presidenta.

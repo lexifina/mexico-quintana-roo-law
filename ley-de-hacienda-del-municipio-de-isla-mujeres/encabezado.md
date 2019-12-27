@@ -1,12 +1,32 @@
-LEY DE HACIENDA DEL MUNICIPIO DE ISLA MUJERES DEL ESTADO DE QUINTANA ROO
-Ley publicada en el Número 154 Extraordinario del Periódico Oficial del Estado de Quintana Roo, el jueves 29 de noviembre de 2018.
-DECRETO NÚMERO: 267
-POR EL QUE SE EXPIDE LA LEY DE HACIENDA DEL MUNICIPIO DE ISLA MUJERES DEL ESTADO DE QUINTANA ROO.
-LA HONORABLE XV LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
-D E C R E T A:
-ÚNICO. SE EXPIDE LA LEY DE HACIENDA DEL MUNICIPIO DE ISLA MUJERES DEL ESTADO DE QUINTANA ROO.
-LEY DE HACIENDA DEL MUNICIPIO DE ISLA MUJERES DEL ESTADO DE QUINTANA ROO.
-TÍTULO PRIMERO
-DISPOSICIONES GENERALES
-CAPÍTULO ÚNICO
-Disposiciones Generales
+CÓDIGO DE CONDUCTA Y PREVENCIÓN DE CONFLICTOS DE INTERÉS DE LAS PERSONAS SERVIDORAS PÚBLICAS DEL INSTITUTO TECNOLÓGICO SUPERIOR DE EL MANTE
+Código publicado en el Número 33 del Periódico Oficial del Estado de Tamaulipas, el jueves 14 de marzo de 2024.
+CÓDIGO DE CONDUCTA Y PREVENCIÓN DE CONFLICTOS DE INTERÉS DE LAS PERSONAS SERVIDORAS PÚBLICAS DEL INSTITUTO TECNOLÓGICO SUPERIOR DE EL MANTE
+JESUS ALBERTO MOCTEZUMA SANDOVAL, Director General del Instituto Tecnológico Superior de El Mante, en el ejercicio de las facultades que me confiere el artículo 19 del Decreto de Creación del Instituto Tecnológico Superior de El Mante, publicado en el Periódico Oficial del Estado, Extraordinario 1, en fecha 25 de agosto de 2008; y
+C O N S I D E R A N D O:
+PRIMERO. Que en cumplimiento a lo establecido en el artículo 20 del Código de Ética del Poder Ejecutivo del Estado de Tamaulipas, publicado en el Periódico Oficial del Estado de Tamaulipas número 12 de fecha 26 de enero de 2023, el cual señala que las dependencias y entidades de la Administración Pública del Estado de Tamaulipas, a través de sus comités de ética y previa aprobación de los órganos internos de control, emitirá un Código de Conducta, en el que se especifica de manera puntual y concreta la forma en que las personas servidoras públicas aplicarán los principios, valores y reglas de integridad.
+SEGUNDO. Que en cumplimiento a lo establecido en el artículo 35 de los Lineamientos para la integración, organización, funcionamiento y evaluación de los Comités de Ética, Conducta y Prevención de Conflictos de Interés en las Dependencias y Entidades de la Administración Pública estatal, publicado en el Periódico Oficial del Estado de Tamaulipas Edición Vespertina número 63 de fecha 25 de mayo de 2023, el cual señala que los Comités deberán emitir un Código de Conducta aplicable a la dependencia o entidad, en términos de las disposiciones normativas conducentes, la política que establezca el Comité Coordinador del Sistema Estatal Anticorrupción y la Guía para la Elaboración y Actualización del Código de Conducta y Prevención de Conflictos de Interés de las dependencias y entidades de la Administración Pública Estatal.
+TERCERO. Que los artículos 6 y 7 de la Ley de Responsabilidades Administrativas del Estado de Tamaulipas, en correlación con los artículos 6 y 7 de la Ley General de Responsabilidades Administrativas, indica que es responsabilidad de las personas servidoras públicas salvaguardar los principios de legalidad, objetividad, profesionalismo, honradez, lealtad, imparcialidad, integridad, rendición de cuentas, eficacia y eficiencia.
+CUARTO. Que el 25 de enero de 2022, se publicó en el Periódico Oficial del Estado Número 10, el Acuerdo que establece las Reglas de Integridad para el Ejercicio de la Función Pública, que regirá la conducta de todas las personas servidoras públicas cualesquiera que fuese su adscripción y su inobservancia será sancionada conforme a la Ley de Responsabilidades Administrativas del Estado de Tamaulipas.
+QUINTO. Que en fecha 26 de enero de 2023, se publicó en el Periódico Oficial del Estado Número 12, el Código de Ética del Poder Ejecutivo del Estado de Tamaulipas, y el 25 de mayo de 2023, se publicó en el Periódico Oficial del Estado, Edición Vespertina Número 63, el Acuerdo que establece los Lineamientos para la integración, organización, funcionamiento y evaluación de los Comités de Ética, Conducta y Prevención de Conflictos de Interés en las Dependencias y Entidades de la Administración Pública Estatal y la Guía para la Elaboración y Actualización del Código de Conducta y Prevención de Conflictos de Interés en las Dependencias y Entidades de la Administración Pública Estatal, documentos bajo los cuales habrían de emitirse los códigos respectivos por parte de dependencias y entidades públicas.
+SEXTO. Que con fecha 17 de julio de 2023, se instalaron los miembros que conforman el Comité de Ética, Conducta y Prevención de Conflictos de este Instituto Tecnológico Superior de El Mante.
+SÉPTIMO. Que una vez instalado el Comité de Ética, Conducta y Prevención de Conflictos de Interés del Instituto Tecnológico Superior de El Mante, se llevó a cabo la elaboración del presente Código de Conducta y Prevención de Conflictos de Interés de las y los Servidores Públicos del Instituto Tecnológico Superior de El Mante, el cual busca enfatizar el comportamiento ético que se espera del personal que labora en el Instituto, como un trato digno, y en apego estricto a los derechos humanos, en congruencia con las obligaciones y facultades de cada una de las personas integrantes del Instituto, al realizar las tareas encomendadas, con una correcta actitud de servicio a la sociedad, con probidad, honradez y del mismo modo con trato cordial al público en general con respeto y tolerancia, edificando una cultura de confianza con las personas Tamaulipecas.
+Índice
+I. MENSAJE DE LA DIRECCIÓN DEL INSTITUTO TECNOLÓGICO SUPERIOR DE EL MANTE
+II. RIESGOS ÉTICOS
+III. OBJETO
+IV. ÁMBITO DE APLICACIÓN Y OBLIGATORIEDAD
+V. GLOSARIO
+VI. CONDUCTAS DE LAS PERSONAS SERVIDORAS PÚBLICAS DEL INSTITUTO TECNOLÓGICO SUPERIOR DE EL MANTE
+VII. ACCIONES DE PREVENCIÓN DE CONDUCTAS QUE PUEDEN CONSTITUIR CONFLICTOS DE INTERÉS
+VIII. INSTANCIA ENCARGADA DE LA INTERPRETACIÓN, ASESORÍA Y/O CONSULTAS
+IX. CARTA COMPROMISO
+ANEXO 1. CARTA COMPROMISO.
+I. MENSAJE DE LA DIRECCIÓN DEL INSTITUTO TECNOLÓGICO SUPERIOR DE EL MANTE
+El personal del Instituto Tecnológico Superior de El Mante perteneciente al Tecnológico Nacional de México (TecNM), tiene el compromiso con la sociedad, y con la propia comunidad del plantel, desempeñar su trabajo con base en un comportamiento ético, basado en principios de legalidad, honradez, lealtad, imparcialidad y eficiencia establecidos en nuestra Constitución, por lo cual, se manifiesta la importancia de fomentar una cultura de integridad y el compromiso de la institución con la adopción de la nueva ética pública.
+En este contexto hemos creado el Código de Conducta y Prevención de Conflicto de Interés del Instituto Tecnológico Superior de El Mante, documento que regirá el comportamiento ético y responsable de nuestros servidores públicos.
+El debido seguimiento en cuanto a la aplicación y cuidado de este Código, lo realizaremos a través del Subcomité de Ética y de Prevención de Conflicto de Interés del Instituto Tecnológico Superior de El Mante, en un esfuerzo por evitar, disminuir o eliminar prácticas indebidas, no transparentes y conductas deshonestas en todos los ámbitos del quehacer del Instituto.
+Este instrumento deberá apoyar el proceso de construcción de una nueva cultura en el servicio público, enfatizando el compromiso y obligatoriedad no sólo de su aplicación sino de su robustecimiento y consolidación.
+Las razones que he participado a ustedes deben ser motivo suficiente para aplicar el presente Código de Conducta y Prevención de Conflicto de Interés del Instituto Tecnológico Superior de El Mante, por lo que, como Director General del plantel, invito a los servidores públicos del plantel a conocerlo, difundirlo y hacerlo cumplir como guía permanente en su desempeño diario, así como asumir su compromiso con la ética, la integridad, la prevención de los conflictos de intereses, y en contra de conductas discriminatorias, de hostigamiento sexual y acoso sexual, así como de cero tolerancia a la corrupción.
+M.A.I.N. Jesús Alberto Moctezuma Sandoval
+Director General
+II. RIESGOS ÉTICOS

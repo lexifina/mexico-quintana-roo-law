@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- Los procedimientos administrativos que se encuentren en trámite o pendientes de resolución a la fecha de entrada en vigor del presente Código deberán sustanciarse y concluirse de conformidad con las disposiciones vigentes al momento en que se iniciaron tales procedimientos.

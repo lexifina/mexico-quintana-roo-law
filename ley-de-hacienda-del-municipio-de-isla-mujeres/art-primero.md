@@ -1,0 +1,1 @@
+ARTÍCULO PRIMERO.- El presente Código de Conducta y Prevención de Conflictos de Interés del Instituto Tecnológico Superior de El Mante, entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado de Tamaulipas.
