@@ -26,6 +26,10 @@ OCTAVO. Se derogan las disposiciones que se opongan a la presente Ley.
 NOVENO. La elección ordinaria local a celebrarse el primer domingo de junio del año 2019 para la renovación del Poder Legislativo del Estado de Quintana Roo, se sujetará a lo siguiente:
 I. El Proceso Electoral dará inicio con la primera sesión que el Consejo General del Instituto Electoral de Quintana Roo celebre en la primera semana del mes de enero del año 2019, y
 II. El Instituto Electoral de Quintana Roo podrá ajustar las fechas para la realización de los actos preparatorios de la elección observando invariablemente las etapas y plazos establecidos en la ley.
+(ADICIONADO, P.O. 3 DE ENERO DE 2020)
+DÉCIMO. La elección ordinaria local concurrente a celebrarse el primer domingo de junio del año 2021 para la renovación de los Ayuntamientos del Estado de Quintana Roo, se sujetará a lo siguiente:
+I. El Proceso Electoral dará inicio con la primera sesión que el Consejo General del Instituto Electoral de Quintana Roo celebre en la primera semana del mes de enero del año 2021, y
+II. El Instituto Electoral de Quintana Roo podrá ajustar las fechas para la realización de los actos preparatorios de la elección observando invariablemente las etapas y plazos establecidos en la Ley.
 SALÓN DE SESIONES DEL HONORABLE PODER LEGISLATIVO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS QUINCE DÍAS DEL MES DE SEPTIEMBRE DEL AÑO DOS MIL DIECISIETE.
 DIPUTADO PRESIDENTE:
 LIC. EDUARDO LORENZO MARTÍNEZ ARCILA.
