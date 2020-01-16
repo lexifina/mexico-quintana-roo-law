@@ -1,0 +1,3 @@
+P.O. 16 DE ENERO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 199 POR EL QUE SE REFORMA EL ARTÍCULO 538 Y SE ADICIONA EL SEGUNDO PÁRRAFO AL ARTÍCULO 548. TODOS DEL CÓDIGO CIVIL PARA EL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+Único. El presente Decreto entrará en vigor el mismo día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
