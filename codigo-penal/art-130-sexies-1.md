@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE SEPTIEMBRE DE 2020)
+ARTICULO 130 SEXIES 1. A quien, empleando cualquier tipo de violencia, amenace o coaccione a otra persona mayor de dieciocho años con llevar a cabo las conductas previstas en el artículo anterior, con el objetivo de obtener un lucro o beneficio de cualquier naturaleza se le impondrá de seis años a ocho años de prisión y multa de cien a cuatrocientas (sic) días multa.
