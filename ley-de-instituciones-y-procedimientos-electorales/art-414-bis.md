@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE SEPTIEMBRE DE 2020)
+Artículo 414 Bis. El Instituto Electoral y el Tribunal Electoral, en el ámbito de sus respectivas competencias, determinarán medidas de protección, medidas cautelares y medidas de reparación que correspondan cuando conozcan de hechos probablemente constitutivos de violencia política contra las mujeres en razón de género. Para tal efecto se auxiliarán de las autoridades competentes para ejecutar las medidas decretadas.

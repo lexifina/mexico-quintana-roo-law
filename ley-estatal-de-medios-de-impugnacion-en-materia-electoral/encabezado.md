@@ -1,5 +1,5 @@
 LEY ESTATAL DE MEDIOS DE IMPUGNACIÓN EN MATERIA ELECTORAL
-Ley publicada en el Periódico Oficial del Estado de Quintana Roo, el martes 27 de agosto de 2002
+Ley publicada en el Periódico Oficial del Estado de Quintana Roo, el martes 27 de agosto de 2002.
 DECRETO NUMERO: 08
 LEY ESTATAL DE MEDIOS DE IMPUGNACIÓN EN MATERIA ELECTORAL.
 LA HONORABLE X LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
