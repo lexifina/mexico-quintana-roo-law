@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE NOVIEMBRE DE 2020)
+ARTICULO 128 BIS.- Cuando la violación sea cometida aprovechando los medios o circunstancias que proporcionan el empleo, cargo o comisión público o privado que el agente ejerce, se le aplicará una pena de prisión de treinta a cincuenta años y multa de mil quinientos a tres mil días multa. Cuando el agente activo sea servidor público, éste será privado o suspendido, además, del ejercicio, cargo o comisión por el término de la pena de prisión que se le imponga.
