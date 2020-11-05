@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 30 DE JUNIO DE 2009)
-ARTICULO 149-TER.- Se sancionará con prisión de hasta una mitad más de la pena que corresponda, al servidor público que incurra en alguna de las conductas señaladas en el presente Capítulo, así como con la destitución e inhabilitación del cargo que ostente al momento de cometer el ilícito.
+(REFORMADO, P.O. 4 DE NOVIEMBRE DE 2020)
+ARTICULO 149-TER.- Se sancionará con prisión de hasta una mitad más de la pena que corresponda, al servidor público que incurra en alguna de las conductas señaladas en el presente Capítulo, se le compruebe que intervino o participó en las operaciones para la comisión del delito de abigeato, sino tomo las medidas a las que esté obligado, así como con la destitución e inhabilitación del cargo que ostente al momento de cometer el ilícito.
