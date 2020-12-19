@@ -8,9 +8,15 @@ V. Brindar asesoría, capacitación y consultoría, en materia de formación emp
 VI. Desarrollar sistemas de información integrales que permitan contar con información detallada de los esquemas de financiamiento, obtención de capital y de los procesos de acceso y otorgamiento de los créditos en el sistema financiero relacionados con emprendedores y las Micro, Pequeñas y Medianas Empresas;
 VII. Promover y difundir la importancia de la cultura empresarial con la finalidad de fortalecer un Estado emprendedor;
 VIII. Diseñar y coordinar mecanismos de apoyo a las Micro, Pequeñas y Medianas Empresas para su integración a la cadena productiva como proveedores o distribuidores;
-IX. Ejecutar las políticas y acciones de fomento para el emprendimiento de los jóvenes para la creación de Micro, Pequeñas y Medianas Empresas;
-X. Promover el desarrollo e instrumentación de proyectos de innovación entre los jóvenes, atendiendo a las actividades económicas del Estado, preponderantemente a la artesanal;
+(REFORMADA, P.O. 18 DE DICIEMBRE DE 2020)
+IX. Ejecutar las políticas y acciones de fomento para el emprendimiento de los jóvenes y las mujeres, para la creación de las Micro, Pequeñas y Medianas Empresas;
+(REFORMADA, P.O. 18 DE DICIEMBRE DE 2020)
+X. Promover el desarrollo e instrumentación de proyectos de innovación entre los jóvenes y las mujeres, atendiendo a las actividades económicas del Estado, preponderantemente a la artesanal;
 XI. Coordinarse con las autoridades educativas correspondientes, a efecto de impulsar la cultura del emprendimiento entre los jóvenes quintanarroenses, tanto en las escuelas de niveles medio superior y superior para lograr una visión empresarial;
 XII. Organizar concursos entre los jóvenes emprendedores que hayan elaborado proyectos de innovación y de desarrollo tecnológico, para fomentar la iniciativa y creatividad entre este sector;
-XIII. Celebrar convenios con las instituciones educativas del nivel medio superior y superior, a efecto de elaborar bases de datos de los egresados que cuenten con un proyecto empresarial que permita encaminar de manera congruente y efectiva las acciones y políticas públicas del Estado, y
-XIV. Las demás que le confieran otras disposiciones legales o administrativas, así como las que le encomiende el Gobernador del Estado.
+(REFORMADA, P.O. 18 DE DICIEMBRE DE 2020)
+XIII. Celebrar convenios con las instituciones educativas del nivel medio superior y superior, a efecto de elaborar bases de datos de los egresados que cuenten con un proyecto empresarial que permita encaminar de manera congruente y efectiva las acciones y políticas públicas del Estado;
+(REFORMADA [N. DE E. ADICIONADA], P.O. 18 DE DICIEMBRE DE 2020)
+XIV. Organizar concursos entre las mujeres emprendedoras que hayan elaborado proyectos de innovación, de desarrollo tecnológico e impacto social, para fomentar la iniciativa y creatividad entre este sector, y
+(ADICIONADA [N. DE E. REUBICADA], P.O. 18 DE DICIEMBRE DE 2020)
+XV. Las demás que le confieran otras disposiciones legales o administrativas, así como las que le encomiende el Gobernador del Estado.

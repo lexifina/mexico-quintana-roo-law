@@ -15,5 +15,6 @@ IX.- Participen activamente en los programas de fomento agropecuario;
 X.- Diversifiquen sus cultivos, de acuerdo a la vocación productiva de cada región, fomentando el establecimiento de agroindustrias;
 XI.- Implementen esquemas de mejora continua orientados a elevar su productividad y competitividad y alcance su certificación ante organismos acreditados;
 XII.- Aumenten sustantivamente sus exportaciones;
-XIII.- Contraten a personas adultas mayores, personas productivas con alguna discapacidad y a las y los jóvenes en edad productiva, priorizando en este último grupo, a aquellas o aquellos que busquen acceder a un primer empleo; y
+(REFORMADA, P.O. 18 DE DICIEMBRE DE 2020)
+XIII. Contraten a personas adultas mayores, personas con discapacidad, mujeres y a las y los jóvenes en edad productiva, priorizando en este último grupo, a aquellas o aquellos que busquen acceder a un primer empleo; y
 XIV.- Realicen alianzas estratégicas empresariales con agrupamientos, cadenas productivas, al amparo de alguna figura jurídica de las contempladas en la legislación estatal y nacional.

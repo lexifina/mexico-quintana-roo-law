@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 18 DE DICIEMBRE DE 2020)
+Artículo 14 BIS.- Los programas sectoriales referidos en el artículo 14 de esta Ley, deberán contener, entre otros:
+I. La definición de los sectores prioritarios para el desarrollo económico;
+II. Las líneas estratégicas para el desarrollo empresarial;
+III. Los mecanismos y esquemas mediante los cuales se ejecutarán las líneas estratégicas;
+IV. Los criterios, mecanismos y procedimientos para dar seguimiento, a la evolución y desempeño de los beneficios previstos en esta Ley, y
+V. Perspectiva de género.
