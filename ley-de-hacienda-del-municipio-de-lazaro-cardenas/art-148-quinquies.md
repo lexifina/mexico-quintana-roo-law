@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2020)
+Artículo 148 Quinquies.- En todos los casos en que se autorice la enajenación de bienes del Municipio y se estipule entre las condiciones conforme a las cuales deba llevarse a cabo, que el precio, o parte de él se pague a plazos, es requisito indispensable sin el cual será nula la operación, el otorgamiento de garantía real para asegurar el pago del crédito.

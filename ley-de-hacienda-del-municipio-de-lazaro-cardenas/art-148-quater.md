@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2020)
+Artículo 148 Quáter.- Con los mismos requisitos señalados en el artículo 126 se podrá dar en pago de crédito u obligaciones a cargo del Municipio, los bienes pertenecientes a la Hacienda Municipal que hubieran sido previamente desincorporados, cumpliendo para tal efecto, con las disposiciones previstas en la Ley de los Municipios del Estado de Quintana Roo.
