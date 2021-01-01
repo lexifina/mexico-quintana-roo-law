@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 21 DE DICIEMBRE DE 2020)
+Artículo 51-Quinquies. Los interesados dispondrán de tres días hábiles para el retiro de sus bienes muebles, contados a partir de la fecha en que hubieran pagado los derechos de almacenaje. Transcurrido dicho término sin haber retirado los bienes muebles, se cubrirán estos derechos por todo el tiempo que continúe el almacenaje, a partir del día siguiente a aquél en que se efectuó el pago, hasta el momento en que se retiren.
