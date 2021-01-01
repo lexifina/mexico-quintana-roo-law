@@ -1,0 +1,8 @@
+LEY DE COORDINACIÓN FISCAL DEL ESTADO DE QUINTANA ROO
+Ley publicada en el Número 170 Extraordinario del Periódico Oficial del Estado de Quintana Roo, el lunes 21 de diciembre de 2020.
+DECRETO NÚMERO: 071
+POR EL QUE SE EXPIDE LA LEY DE COORDINACIÓN FISCAL DEL ESTADO DE QUINTANA ROO.
+LA HONORABLE XVI LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
+D E C R E T A:
+ÚNICO. Se expide la Ley de Coordinación Fiscal del Estado de Quintana Roo, para quedar como sigue:
+LEY DE COORDINACIÓN FISCAL DEL ESTADO DE QUINTANA ROO.
