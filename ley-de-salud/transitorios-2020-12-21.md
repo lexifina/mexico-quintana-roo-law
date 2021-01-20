@@ -1,0 +1,5 @@
+P.O. 21 DE DICIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 064 POR EL QUE SE EXPIDE LA LEY DE SALUD MENTAL DEL ESTADO DE QUINTANA ROO, Y POR EL QUE REFORMA LA FRACCIÓN IV DEL APARTADO A DEL ARTÍCULO 5 Y SE DEROGA EL CAPÍTULO VII DENOMINADO "SALUD MENTAL" COMPRENDIDO POR LOS ARTÍCULOS 66; 67; 67-A; 68; 69, Y 70, DEL TÍTULO TERCERO DENOMINADO "PRESTACIÓN DE LOS SERVICIOS DE SALUD" DE LA LEY DE SALUD DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor a los treinta días siguientes de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. La Secretaría de Salud contará con un plazo de noventa días hábiles siguientes a la entrada en vigor de la ley para convocar e instalar el Consejo Estatal de Salud Mental. Este Consejo tendrá noventa días hábiles siguientes a la entrada en vigor de la ley para emitir el Reglamento de esta ley y las modificaciones reglamentarias que correspondan.
+TERCERO. La Secretaría de Salud, conforme a la suficiencia presupuestal asignada en el Presupuesto de Egresos para el ejercicio anual vigente, instrumentará las acciones establecidas en la presente Ley.
