@@ -1,0 +1,14 @@
+TRANSITORIOS
+PRIMERO. El presente decreto entrará en vigor a los treinta días naturales siguientes de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se abroga la Ley del Periódico Oficial del Estado de Quintana Roo, publicada en el Periódico Oficial del Estado de Quintana Roo, el día catorce de diciembre del año dos mil siete; lo anterior, sin perjuicio de la existencia de la Dirección del Periódico Oficial del Estado, misma que se mantiene para los efectos del artículo 5 de la presente Ley.
+TERCERO. A la entrada en vigor de la presente Ley, los Poderes del Estado, Órganos Autónomos, Dependencias, Entidades, Ayuntamientos y demás entes públicos, así como los particulares que con frecuencia hagan uso de los servicios de publicación, deberán comunicar por escrito a la Secretaría de Gobierno, en un plazo que no exceda de los quince días naturales, la dirección de la cuenta de correo electrónico para los fines previstos en el segundo párrafo del artículo 10 de esta Ley. Asimismo, toda modificación a aquellas deberá ser comunicada de inmediato a la misma autoridad.
+CUARTO. A la vigencia de la presente Ley, la persona titular de la Dirección dispondrá lo necesario con el fin de remitir al Archivo General del Estado, el Acervo Histórico del Periódico Oficial, ediciones y documentos jurídicos en caso de existir, que ya estén debidamente digitalizados, con el fin de que aquel conforme a sus atribuciones determine, atendiendo al valor histórico, cultural o social, su conservación en ese archivo o proceda a la destrucción de los mismos.
+CENTRO INTERNACIONAL DE NEGOCIOS Y CONVENCIONES DE CHETUMAL, DESIGNADO RECINTO OFICIAL DISTINTO DE LA HONORABLE XVI LEGISLATURA, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO, A LOS DIECINUEVE DÍAS DEL MES DE DICIEMBRE DEL AÑO DOS MIL VEINTE.
+DIPUTADO PRESIDENTE:
+C. LUIS FERNANDO CHÁVEZ ZEPEDA.
+DIPUTADO SECRETARIO:
+PROFR. HERNÁN VILLATORO BARRIOS.
+CARLOS MANUEL JOAQUÍN GONZÁLEZ, GOBERNADOR DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO, A LOS HABITANTES DEL MISMO, SABED:
+EN CUMPLIMIENTO DE LAS OBLIGACIONES QUE ME IMPONEN LOS ARTÍCULOS 91 FRACCIÓN II Y 93 DE LA CONSTITUCIÓN POLÍTICA Y 11 DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA, AMBAS DEL ESTADO DE QUINTANA ROO, PROMULGO EL DECRETO NÚMERO 094 DE LA XVI LEGISLATURA, QUE ME HA SIDO REMITIDO POR EL H. CONGRESO DEL ESTADO, PARA SU DEBIDA PUBLICACIÓN Y OBSERVANCIA.
+DADO EN LA RESIDENCIA OFICIAL DEL PODER EJECUTIVO DEL ESTADO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS VEINTIDOS DÍAS DEL MES DE DICIEMBRE DEL AÑO DOS MIL VEINTE.
+EL GOBERNADOR DEL ESTADO DE QUINTANA ROO, C.P. CARLOS MANUEL JOAQUÍN GONZÁLEZ, RUBRICA; EL SECRETARIO DE GOBIERNO DEL ESTADO DE QUINTANA ROO, DR. JORGE ARTURO CONTRERAS CASTILLO, RÚBRICA.
