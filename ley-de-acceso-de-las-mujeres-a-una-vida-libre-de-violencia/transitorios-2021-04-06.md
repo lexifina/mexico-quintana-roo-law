@@ -1,0 +1,5 @@
+P.O. 6 DE ABRIL DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 097 POR EL QUE SE REFORMAN EL PÁRRAFO PRIMERO Y LAS FRACCIONES III Y IV DEL ARTÍCULO 12; EL ARTÍCULO 14 Y EL ARTÍCULO 15; Y SE ADICIONAN LA FRACCIÓN V Y UN ÚLTIMO PÁRRAFO AL ARTÍCULO 12 Y EL ARTÍCULO 14 BIS; TODOS DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. En un término de 180 días naturales, el Gobierno del Estado y los Municipios en el ámbito de sus respectivas competencias deberán expedir y publicar la normatividad administrativa los protocolos especializados para prevenir, atender y denunciar el hostigamiento, acoso sexual y el acoso sexual en espacios públicos o de acceso público, con enfoque en derechos humanos y perspectiva de género, acordes con el protocolo publicado en el Diario Oficial de la Federación en fecha 3 de enero de 2020.
+TERCERO. Se derogan todas las disposiciones que se opongan al presente decreto.

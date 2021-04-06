@@ -1,3 +1,5 @@
+(DEROGADO SEGUNDO PÁRRAFO, P.O. 30 DE MAYO DE 2012)
+(DEROGADO TERCER PÁRRAFO, P.O. 6 DE ABRIL DE 2021)
 (REFORMADO, P.O. 4 DE JULIO DE 2017)
 ARTICULO 89 BIS.- Comete delito de feminicidio, el que dolosamente prive de la vida a una mujer por razones de género. Se le impondrá prisión de veinticinco a cincuenta años y de mil quinientos a tres mil días multa.
 Existen razones de género cuando se presente cualquiera de los siguientes supuestos:
