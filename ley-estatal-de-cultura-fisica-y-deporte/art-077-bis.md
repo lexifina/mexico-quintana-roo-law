@@ -9,7 +9,8 @@ VI. Utilizar los accesos y adecuaciones pertinentes en las instalaciones y equip
 VII. Participar en las consultas públicas a que se convoque para la elaboración del programa estatal, así como también de los programas y reglamentos de su especialidad;
 VIII. Ejercer su derecho de voto en el seno de su asociación u organización a la que pertenezca, en los términos de la normatividad aplicable;
 IX. Desempeñar cargos directivos, siempre y cuando haya sido elegido en asamblea de clubes, ligas, consejos deportivos, asociaciones y federaciones deportivas;
-X. Recibir, en los términos y condiciones de la normatividad aplicable, toda clase de estímulos, premios, reconocimientos y recompensas en dinero o especie;
+(REFORMADA, P.O. 15 DE ABRIL DE 2023)
+X. Recibir, de manera igualitaria tanto hombres y mujeres, en los términos y condiciones de la normatividad aplicable, toda clase de estímulos, premios, reconocimientos y recompensas en dinero o especie;
 XI. Manifestar las necesidades que considere dentro del ámbito deportivo que se desempeñe, mediante diálogos y el ejercicio del derecho de expresión;
 XII. Obtener de las autoridades correspondientes el registro que lo acredite como deportista;
 XIII. Contar con las instalaciones deportivas adecuadas y en buen estado en todo momento dependiendo la disciplina deportiva a que se dedique, y
