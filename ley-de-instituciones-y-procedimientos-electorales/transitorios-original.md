@@ -30,6 +30,10 @@ II. El Instituto Electoral de Quintana Roo podrá ajustar las fechas para la rea
 DÉCIMO. La elección ordinaria local concurrente a celebrarse el primer domingo de junio del año 2021 para la renovación de los Ayuntamientos del Estado de Quintana Roo, se sujetará a lo siguiente:
 I. El Proceso Electoral dará inicio con la primera sesión que el Consejo General del Instituto Electoral de Quintana Roo celebre en la primera semana del mes de enero del año 2021, y
 II. El Instituto Electoral de Quintana Roo podrá ajustar las fechas para la realización de los actos preparatorios de la elección observando invariablemente las etapas y plazos establecidos en la Ley.
+(ADICIONADO, P.O. 11 DE JULIO DE 2021)
+UNDÉCIMO. La elección ordinaria local a celebrarse el primer domingo del mes de junio del año 2022 para la renovación de la Gubernatura y las Diputaciones Locales, ambas del Estado Libre y Soberano de Quintana Roo, se sujetará a lo siguiente:
+I. El Proceso Electoral dará inicio con la primera sesión que el Consejo General del Instituto Electoral de Quintana Roo celebre en la primera semana del mes de enero del año 2022, y
+II. El Instituto Electoral de Quintana Roo podrá ajustar las fechas para la realización de los actos preparatorios de la elección observando invariablemente las etapas y plazos establecidos en la ley.
 SALÓN DE SESIONES DEL HONORABLE PODER LEGISLATIVO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS QUINCE DÍAS DEL MES DE SEPTIEMBRE DEL AÑO DOS MIL DIECISIETE.
 DIPUTADO PRESIDENTE:
 LIC. EDUARDO LORENZO MARTÍNEZ ARCILA.
