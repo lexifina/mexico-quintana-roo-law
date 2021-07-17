@@ -1,14 +1,8 @@
-LEY DE JUSTICIA PARA ADOLESCENTES DEL ESTADO DE QUINTANA ROO
-Ley publicada en el Extraordinario del Periódico Oficial del Estado de Quintana Roo, el lunes 28 de junio del 2010.
-DECRETO NÚMERO 285
-QUE CONTIENE LA LEY DE JUSTICIA PARA ADOLESCENTES DEL ESTADO DE QUINTANA ROO.
+LEY DE TURISMO DEL ESTADO DE QUINTANA ROO
+Ley publicada en el Extraordinario del Periódico Oficial del Estado de Quintana Roo, el lunes 28 de junio de 2010.
+DECRETO NÚMERO: 290
+CONTIENE LA LEY DE TURISMO DEL ESTADO DE QUINTANA ROO.
 LA HONORABLE XII LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
-D E C R E T A:
-ÚNICO.- Se expide la Ley de Justicia para Adolescentes del estado de Quintana Roo, para quedar como sigue:
-LEY DE JUSTICIA PARA ADOLESCENTES DEL ESTADO DE QUINTANA ROO.
-LIBRO PRIMERO
-DISPOSICIONES GENERALES
-TÍTULO ÚNICO
-DISPOSICIONES GENERALES
-CAPÍTULO I
-Objeto, Principios y Definiciones
+DECRETA:
+ÚNICO.- Se expide la Ley de Turismo del Estado de Quintana Roo, para quedar como sigue:
+LEY DE TURISMO DEL ESTADO DE QUINTANA ROO

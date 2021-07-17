@@ -1,7 +1,8 @@
 (ADICIONADO, P.O. 30 DE OCTUBRE DE 2015)
 Artículo 2 Bis.- Para efectos de esta ley se entenderá por:
 a) Ley: La Ley de Fomento a las Actividades Realizadas por las Organizaciones Civiles para el Estado de Quintana Roo.
-b) Secretaría: La Secretaría de Desarrollo Social e Indígena.
+(REFORMADO, P.O. 16 DE JULIO DE 2021)
+b) Secretaría: La Secretaría de Desarrollo Social,
 c) Dependencias: Unidades de la Administración Pública estatal y municipal.
 d) Entidades: Los organismos e instituciones de la Administración Pública estatal y municipal.
 e) Organizaciones: Las personas morales cuyas atribuciones se definen en el artículo 3 de esta ley.

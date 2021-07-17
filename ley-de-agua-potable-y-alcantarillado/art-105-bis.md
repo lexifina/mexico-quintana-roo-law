@@ -11,5 +11,5 @@ II.- La Dirección de Recuperación de Adeudos y Ejecución Fiscal, dependiente 
 III.- Para el caso de mora en los pagos de los servicios concesionarios, la Dirección de Recuperación de adeudos y Ejecución Fiscal, dependiente de la Comisión de Agua Potable y Alcantarillado, tendrá a su cargo el cobro de los adeudos correspondientes, conforme a esta sección.
 (ADICIONADA, P.O. 9 DE ABRIL DE 1996)
 IV.- En todo lo no previsto en la presente sección, se aplicará supletoriamente el Código Fiscal del Estado.
-(ADICIONADA, P.O. 9 DE ABRIL DE 1996)
-V.- Los recursos en los procedimientos administrativos de ejecución, serán resueltos por la autoridad fiscal competente de la Secretaria de Hacienda del Estado.
+(REFORMADA, P.O. 16 DE JULIO DE 2021)
+V.- Los recursos en los procedimientos administrativos de ejecución, serán resueltos por la autoridad fiscal competente de la Secretaría de Finanzas y Planeación.
