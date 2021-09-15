@@ -1,3 +1,3 @@
-(ADICIONADO, P.O. 19 DE JULIO DE 2017)
-Artículo 35 Sexies.- El titular del Órgano Interno de Control de la Comisión será sujeto de responsabilidad en términos de la Ley General de Responsabilidades Administrativas y de la Ley de Responsabilidades de los Servidores Públicos del Estado de Quintana Roo.
-Tratándose de los demás servidores públicos adscritos al Órgano Interno de Control de la Comisión serán sancionados por el Titular del Órgano Interno de Control, en términos de la Ley General de Responsabilidades Administrativas y de la Ley de Responsabilidades de los Servidores Públicos del Estado de Quintana Roo.
+(REFORMADO, P.O. 14 DE SEPTIEMBRE DE 2021)
+Artículo 35 Sexies.- La persona titular del Órgano Interno de Control de la Comisión será sujeto de responsabilidad en términos de la Ley General de Responsabilidades Administrativas.
+Tratándose de las demás personas servidoras públicas adscritas al Órgano Interno de Control de la Comisión serán sancionados por el Titular del Órgano Interno de Control, en términos de la Ley General de Responsabilidades Administrativas.
