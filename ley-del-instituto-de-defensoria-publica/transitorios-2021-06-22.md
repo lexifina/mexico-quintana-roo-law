@@ -15,7 +15,8 @@ Para tal efecto, por única ocasión en la primera designación que se haga con 
 El Consejo de la Judicatura deberá realizar las adecuaciones normativas para armonizar lo dispuesto en el artículo 118 de la Ley Orgánica del Poder Judicial del Estado.
 DÉCIMO PRIMERO. De conformidad con la capacidad presupuestal y recursos humanos e informáticos del Poder Judicial, el Consejo de la Judicatura realizará las acciones conducentes para implementar las herramientas necesarias para el funcionamiento del sistema de justicia laboral.
 El Consejo de la Judicatura deberá realizar las acciones necesarias para contar con asistentes jurídicos capacitados con antelación a la entrada en operaciones de los Tribunales Laborales.
-DÉCIMO SEGUNDO. La Legislatura del Estado emitirá la Declaratoria de entrada en funciones de los Tribunales Laborales y el Centro de Conciliación Laboral del Estado de Quintana Roo a más tardar el treinta de septiembre de dos mil veintiuno, previa solicitud que al efecto emita el Consejo de la Judicatura, por conducto de su Presidente.
+(REFORMADO PRIMER PÁRRAFO, P.O. 7 DE OCTUBRE DE 2021)
+DÉCIMO SEGUNDO. La Legislatura del Estado emitirá la Declaratoria de entrada en funciones de los Tribunales Laborales y el Centro de Conciliación Laboral del Estado de Quintana Roo, cuando lo determine el Consejo de Coordinación para la implementación de la Reforma al Sistema de Justicia Laboral, previa solicitud que al efecto emita el Consejo de la Judicatura, por conducto de su Presidente.
 La Declaratoria deberá publicarse en el Periódico Oficial del Estado de Quintana Roo.
 DÉCIMO TERCERO. El Poder Ejecutivo y el Poder Legislativo del Estado de Quintana Roo, realizarán las adecuaciones presupuestales que resulten necesarias a fin de dotar de los recursos materiales y financieros que permitan el cumplimiento del presente Decreto.
 DÉCIMO CUARTO. Se derogan las disposiciones legales que se opongan al presente decreto.
