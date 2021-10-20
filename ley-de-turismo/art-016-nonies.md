@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE OCTUBRE DE 2021)
+Articulo 16 Nonies. La Secretaría en conjunto con las dependencias y entidades de la administración pública estatal y los prestadores de servicios turísticos promoverán la participación de los habitantes de las zonas donde se practique el turismo rural comunitario, con el fin de involucrarlos en el desarrollo, planificación, manejo y aprovechamiento sostenible de los recursos naturales de su entorno.

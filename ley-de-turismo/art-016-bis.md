@@ -1,8 +1,7 @@
-(REFORMADA SU DENOMINACIÓN, P.O. 22 DE DICIEMBRE DE 2014)
-CAPITULO II BIS
-DE LOS TIPOS DE TURISMO
-(ADICIONADA, P.O. 22 DE DICIEMBRE DE 2014)
-SECCIÓN PRIMERA
+(DEROGADO CON LAS SECCIONES Y ARTÍCULOS QUE LO INTEGRAN, P.O. 19 DE OCTUBRE DE 2021)
+CAPÍTULO II BIS
+DEROGADO
+(DEROGADA CON EL ARTÍCULO QUE LA INTEGRAN, P.O. 19 DE OCTUBRE DE 2021)
+Sección Primera
 MODALIDADES DEL TURISMO
-(REFORMADO, P.O. 22 DE DICIEMBRE DE 2014)
-Artículo 16 Bis.- La Secretaría, con el apoyo de los gobiernos municipales, las dependencias y entidades de la Administración Pública del Estado, impulsarán y realizarán programas de atracción a nivel nacional e internacional de los tipos de turismo previstos en el artículo 4 Bis de la presente ley.
+Artículo 16-Bis. (DEROGADO, P.O. 19 DE OCTUBRE DE 2021)
