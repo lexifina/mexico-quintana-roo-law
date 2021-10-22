@@ -7,7 +7,8 @@ I. Que existan antecedentes o datos de cualquier tipo de violencia en el ámbito
 II. Que el cuerpo de la víctima presente signos de violencia sexual de cualquier tipo;
 III. Que a la víctima se le hayan infligido lesiones o mutilaciones infamantes o degradantes, previas o posteriores a la privación de la vida o actos de necrofilia;
 IV. Que existan antecedentes o datos que establezcan que hubo amenazas relacionadas con el hecho delictuoso, acoso u hostigamiento sexual, o lesiones del sujeto activo en contra de la víctima;
-V. Que el cuerpo de la víctima sea expuesto o exhibido en un lugar público;
+(REFORMADA, P.O. 21 DE OCTUBRE DE 2021)
+V. Que el cuerpo o partes del cuerpo de la víctima, hayan sido expuestos, arrojados, depositados o exhibidos en un lugar público o cualquier espacio de libre concurrencia;
 VI. Que el activo haya obligado a la víctima a ejercer la prostitución, o haya ejercido actos de trata de personas en agravio de la víctima;
 VII. Que haya existido entre el activo y la víctima una relación sentimental, afectiva o de confianza;
 VIII. Que la víctima haya sido incomunicada, cualquiera que sea el tiempo previo a la privación de la vida.
