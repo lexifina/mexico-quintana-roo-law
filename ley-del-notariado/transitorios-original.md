@@ -1,23 +1,26 @@
-ARTÍCULOS TRANSITORIOS
-PRIMERO. La presente ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
-SEGUNDO. Se abroga la Ley del Notariado para el Estado de Quintana Roo, contenida en el Decreto Número 205 emitido por la Décima Primera Legislatura Constitucional del Estado Libre y Soberano de Quintana Roo, publicada en el Periódico Oficial de 29 de octubre del año 2007, así como todas sus reformas legales y se derogan todas las demás disposiciones que se opongan a la presente ley.
-TERCERO. Los Notarios Públicos Titulares que actualmente se encuentren con licencia autorizada, continuarán con la misma hasta el vencimiento de su plazo o de la terminación de su cargo público, según se trate, debiendo reincorporarse a la Notaría Pública de que sean titulares, dentro de los diez días hábiles siguientes a la fecha de la terminación, de su licencia o cargo público.
-CUARTO. Los Notarios Públicos Suplentes quienes, a la fecha de inicio de la vigencia de esta ley, estén desempeñando funciones notariales por licencia autorizada a Notarios Públicos Titulares, continuarán con ese desempeño hasta la fecha de vencimiento de esas licencias o de la terminación del cargo público que la hubiera originado.
-QUINTO. Los Notarios Públicos Auxiliares, que al inicio de la vigencia de la presente ley estén en funciones, continuarán en las mismas, y decidirán con libertad si presentan su examen de Aspirante al ejercicio del Notariado, sin que ello afecte en forma alguna su nombramiento.
-SEXTO. Los Notarios Públicos en ejercicio de sus funciones a la fecha de inicio de la vigencia de esta ley, continuarán utilizando válidamente el protocolo ordinario hasta concluirlos y deberán actualizar sus garantías conforme a lo señalado en la fracción II del artículo 46 de esta ley, dentro de los ciento veinte días naturales siguientes a la misma fecha de inicio antes citada.
-SÉPTIMO. Los procedimientos administrativos iniciados antes de la entrada en vigor de esta ley, se tramitarán y resolverán de conformidad con la ley que se abroga.
-OCTAVO. La Dirección General de Notarías, a la vigencia de la presente ley, deberá instrumentar las diligencias necesarias en coordinación con las autoridades cuyas funciones se encuentren relacionadas con la materia y de acuerdo a las normas que regulan la misma, para la depuración de los expedientes de apéndices cuyos documentos ya no posean eficacia jurídica ni valor histórico y se encuentren bajo resguardo del Archivo General de Notarias.
-NOVENO. La destrucción de los libros de protocolo y apéndices que a la vigencia de la presente ley existan en el Archivo General de Notarías, en coordinación con las autoridades que por norma les competa la materia de documentos archivísticos, procederá siempre y cuando aquellos ya hayan sido digitalizados de acuerdo con lo que establecen los artículos 67 y 84 de la presente ley; siempre y cuando no se oponga con las disposiciones de otras leyes de la materia.
-DÉCIMO. Todos los Notarios sin perjuicio de las obligaciones que tiene de establecer el domicilio de su oficina, deberán, en un término de quince días hábiles contados a partir de la publicación de la presente ley y mediante escrito dirigido a la Secretaría de Gobierno y a la Dirección General de Notarías, proporcionar un correo electrónico, mismo que será registrado por estas Autoridades antes mencionadas, para que se les hagan las notificaciones y se practiquen las diligencias que sean necesarias, relacionadas con la presente ley.
-DÉCIMO PRIMERO. Las convocatorias en proceso para obtener las patentes de las Notarías Públicas acéfalas, le serán aplicables las reglas de la ley que se abroga, con excepción de la integración del jurado, que se hará conforme a la presente ley.
-DÉCIMO SEGUNDO. Hasta en tanto no se realice la devolución del total de la garantía, por parte del Poder Ejecutivo del Estado de Quintana Roo, los notarios no estarán obligados a realizar el pago de la fianza prevista en la presente Ley.
-DÉCIMO TERCERO. El Titular del Poder Ejecutivo emitirá el reglamento de la presente Ley, mismo que deberá ser publicado en el Periódico Oficial del Estado de Quintana Roo.
-SALÓN DE SESIONES DEL HONORABLE PODER LEGISLATIVO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS VEINTIDÓS DÍAS DEL MES DE MAYO DEL AÑO DOS MIL DIECINUEVE.
-DIPUTADO PRESIDENTE:
-PROFR. RAMÓN JAVIER PADILLA BALAM.
-DIPUTADA SECRETARIA:
-MTRA. ADRIANA DEL ROSARIO CHAN CANUL.
-CARLOS MANUEL JOAQUÍN GONZÁLEZ, GOBERNADOR DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO, A LOS HABITANTES DEL MISMO, SABED:
-EN CUMPLIMIENTO DE LAS OBLIGACIONES QUE ME IMPONEN LOS ARTÍCULOS 91 FRACCIÓN II Y 93 DE LA CONSTITUCIÓN POLÍTICA Y 11 DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA. AMBAS DEL ESTADO DE QUINTANA ROO, PROMULGO EL DECRETO NÚMERO 333 DE LA XV LEGISLATURA, QUE ME HA SIDO REMITIDO POR EL H. CONGRESO DEL ESTADO, PARA SU DEBIDA PUBLICACIÓN Y OBSERVANCIA.
-DADO EN LA RESIDENCIA OFICIAL DEL PODER EJECUTIVO DEL ESTADO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS VEINTIOCHO DÍAS DEL MES DE MAYO DEL AÑO DOS MIL DIECINUEVE
-EL GOBERNADOR DEL ESTADO DE QUINTANA ROO, C.P. CARLOS MANUEL JOAQUÍN GONZÁLEZ, RUBRICA; EL SECRETARIO DE GOBIERNO DEL ESTADO DE QUINTANA ROO, LIC. FRANCISCO XAVIER LÓPEZ MENA, RUBRICA.
+ARTICULOS TRANSITORIOS
+PRIMERO.- La presente ley entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- Se abroga la Ley de Equilibrio Ecológico y la Protección del Ambiente del Estado de Quintana Roo, aprobada mediante decreto número 57, publicada en el Periódico Oficial del Gobierno del Estado de Quintana Roo, el día 14 de abril de 1989, y se derogan todas las disposiciones legales y reglamentarias que se opongan a los preceptos de esta ley.
+TERCERO.- Se establece un término de 180 días hábiles, a partir de la publicación en el Periódico Oficial del Gobierno del Estado del presente ordenamiento, para la expedición de los reglamentos necesarios para su aplicación, por parte del Gobernador del Estado y de los Ayuntamientos respectivos.
+En tanto se expiden los ordenamientos reglamentarios, así como las demás disposiciones de carácter general previstas en esta ley, continuarán aplicándose las expedidas con anterioridad por las autoridades competentes, en todo aquello que no la contravenga.
+CUARTO.- El Ejecutivo Estatal, mediante acuerdo que se publicará en el Periódico Oficial del Gobierno del Estado, deberá determinar la categoría de área natural protegida que, conforme a lo dispuesto en esta ley, corresponderá a las áreas o zonas que hayan sido establecidas con anterioridad a la entrada en vigor de la misma, con la finalidad de cumplir alguno o algunos de los propósitos establecidos en el artículo 63 de esta ley, o cuya caracterización sea análoga o similar a la descripción de alguna de las áreas naturales protegidas de competencia federal previstas en el Artículo 46 de la Ley General.
+QUINTO.- Los permisos o autorizaciones que se hubieren expedido con anterioridad a la presente ley, mantendrán sus efectos legales hasta en tanto expiren. Asimismo todos los procedimientos y recursos administrativos relacionados en las materias de esta ley, que se hayan iniciado bajo la vigencia de la Ley de Equilibrio Ecológico y la Protección del Ambiente del Estado de Quintana Roo que se abroga, se tramitarán y resolverán conforme a las disposiciones de dicha Ley.
+SEXTO.- La Secretaría dispondrá la entrada en vigor de las disposiciones de esta ley relativas a los programas de verificación vehicular obligatoria, conforme lo requieran las condiciones ambientales del Estado.
+SEPTIMO.- Para la expedición y publicación de los acuerdos administrativos y listados que se establecen en la presente ley, para su aplicación, la Secretaría y las autoridades municipales competentes, en su caso, dispondrán de un término de 90 días hábiles, contados a partir del día siguiente a la entrada en vigor de la misma.
+OCTAVO.- En tanto se expida el acuerdo mediante el cual se determinará la clasificación de las actividades que deban considerarse riesgosas, a que se refiere el artículo 143 de la presente ley, deberán tenerse por tales, aquellas contempladas en los listados que hasta el momento se aplican por la Secretaría, tomando como referencia la clasificación de actividades altamente riesgosas establecida por la federación.
+NOVENO.- Para la integración de los Sistemas, Fondos, Consejos, Comisiones y demás órganos a que se refiere esta ley, la Secretaría y las autoridades municipales competentes dispondrán de un término de 90 días hábiles, contados a partir del día siguiente a la entrada en vigor de la misma.
+POR EL QUE SE APRUEBA LA LEY DEL EQUILIBRIO ECOLOGICO Y LA PROTECCION AL AMBIENTE DEL ESTADO DE QUINTANA ROO.
+SALON DE SESIONES DEL PODER LEGISLATIVO, EN LA CIUDAD DE CHETUMAL, CAPITAL DEL ESTADO DE QUINTANA ROO, A LOS VEINTISEIS DEL MES DE JUNIO DEL AÑO DOS MIL UNO.
+DIPUTADA PRESIDENTA:
+MARTHA DEL C. SILVA MARTINEZ.
+DIPUTADO SECRETARIO:
+ANGEL DE J. MARIN CARRILLO.
+EN CUMPLIMIENTO DE LO DISPUESTO POR EL ARTICULO 91 FRACCION II, DE LA CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO Y PARA SU DEBIDA OBSERVANCIA, EXPIDO EL PRESENTE DECRETO EN LA RESIDENCIA DEL PODER EJECUTIVO EN LA CIUDAD DE CHETUMAL, QUINTANA ROO A LOS VEINTIOCHO DIAS DEL MES DE JUNIO DEL AÑO DOS MIL UNO.
+GOBERNADOR CONSTITUCIONAL DEL ESTADO DE QUINTANA ROO
+LIC. JOAQUÍN ERNESTO HENDRICKS DÍAZ
+SECRETARIO DE GOBIERNO
+DR. JOSÉ LUIS PECH VÁRGUEZ
+(F. DE E., P.O. 30 DE AGOSTO DE 2001)
+ING. VICTOR MANUEL ALCERRECA SANCHEZ
+SECRETARIO DE DESARROLLO URBANO Y MEDIO AMBIENTE
+N. DE E., A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.

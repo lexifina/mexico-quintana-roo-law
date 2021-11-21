@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE OCTUBRE DE 2015)
+Artículo 13 BIS.- La Administración Pública Estatal, el Poder Legislativo del Estado, el Poder Judicial del Estado y los municipios del estado, expedirán los manuales de sistemas de manejo ambiental, que tendrán por objeto la optimización de los recursos materiales que se emplean para el desarrollo de sus actividades, con el fin de reducir costos financieros y ambientales.
