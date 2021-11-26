@@ -1,5 +1,0 @@
-(ADICIONADO, P.O. 30 DE OCTUBRE DE 2015)
-Artículo 13 TER.- Las dependencias de la Administración Pública Estatal, el Poder Legislativo del Estado, el Poder Judicial del Estado y los municipios del estado, podrán instalar en los inmuebles a su cargo, un sistema de captación de agua pluvial, debiendo atender los requerimientos de la zona geográfica en que se encuentren y la posibilidad física, técnica y financiera que resulte conveniente para cada caso. Esta se utilizará en los baños, las labores de limpieza de pisos y ventanas, el riego de jardines y árboles de ornato.
-La instalación del sistema de captación de agua pluvial en aquellos inmuebles a cargo de las dependencias de la Administración Pública Estatal, el Poder Legislativo del Estado, el Poder Judicial del Estado y los municipios del estado, declarados monumentos artísticos e históricos en términos de lo dispuesto por la Ley estatal se llevará a cabo bajo la rigurosa supervisión de la Secretaría de Educación y Cultura y de expertos en la materia según corresponda, con objeto de evitar afectaciones a dichos inmuebles.
-SECCION II
-Ordenamiento Ecológico

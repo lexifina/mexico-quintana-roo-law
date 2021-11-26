@@ -1,0 +1,5 @@
+P.O. 20 DE NOVIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 166 POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DEL NOTARIADO PARA EL ESTADO DE QUINTANA ROO Y SE REFORMA EL ARTÍCULO DÉCIMO SEGUNDO TRANSITORIO DEL DECRETO NÚMERO 333 DE LA XV LEGISLATURA DEL ESTADO, POR EL QUE SE EXPIDE LA LEY DEL NOTARIADO PARA EL ESTADO DE QUINTANA ROO, PUBLICADO EN EL PERIÓDICO OFICIAL DEL ESTADO DE QUINTANA ROO EL 2 DE JULIO DEL AÑO 2019".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO. La Secretaría de Gobierno, a partir de la entrada en vigor del presente Decreto, tendrá un periodo máximo de un año, para llevar a cabo las diligencias necesarias para la obtención de los folios notariales que servirán a los Notarios Públicos para la integración de su protocolo. Hasta en tanto la Secretaría de Gobierno no cuente con los folios en su poder, los Notarios Públicos continuarán adquiriéndolos bajo el procedimiento señalado en la Ley que se reforma.
