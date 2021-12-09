@@ -1,0 +1,3 @@
+P.O. 8 DE DICIEMBRE DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO: 153 POR EL QUE SE REFORMAN LOS ARTÍCULOS 63, 65 Y 66, Y SE ADICIONA EL PÁRRAFO SEGUNDO AL ARTÍCULO 64 DE LA LEY DE LA JUVENTUD DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
