@@ -1,0 +1,5 @@
+P.O. 9 DE DICIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 148 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DEL PODER LEGISLATIVO DEL ESTADO DE QUINTANA ROO, DEL REGLAMENTO PARA EL GOBIERNO INTERIOR DE LA LEGISLATURA Y DEL REGLAMENTO DE COMISIONES DEL PODER LEGISLATIVO DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones legales que se opongan al presente Decreto.
+TERCERO. Los plazos y procedimientos establecidos en el presente Decreto serán aplicables a las iniciativas de Ley o Decreto presentadas en la H. XVI Legislatura del Estado que al inicio de la vigencia del presente decreto no hayan fenecido en sus plazos para aprobación ante la Legislatura o dictaminación en las comisiones ordinarias competentes. Asimismo, le serán aplicables a las iniciativas presentadas en legislaturas anteriores a la XVI Legislatura del Estado de Quintana Roo, que se encuentran pendientes de votación ante el Pleno de la Legislatura.
