@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2021)
+Artículo 142 Quinquies. Los retenedores deberán de proporcionar mensualmente, mediante formas aprobadas por la Tesorería Municipal la información que se refiere a las habitaciones ocupadas por la prestación de ese servicio y el número de arribos vía marítima, así como de las operaciones practicadas con personas físicas y morales respecto de la causación de este derecho, a más tardar el día quince del mes inmediato posterior al que corresponda dicha información, acompañado del entero del derecho correspondiente.
