@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 24 DE DICIEMBRE DE 2021)
+Artículo 55 Bis. Tratándose del pago del derecho de Saneamiento Ambiental que realicen los visitantes usuarios de cuartos y/o habitaciones de hoteles, posadas o casas de huéspedes, hostales y moteles, o cualquier otro servicio de hospedaje, el monto del derecho deberá ser retenido por los prestadores de los servicios del ramo. Debiendo enterar y declarar lo retenido en términos del artículo 57 de la presente Ley.
