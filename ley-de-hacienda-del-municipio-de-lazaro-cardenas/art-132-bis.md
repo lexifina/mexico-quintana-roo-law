@@ -2,5 +2,5 @@
 (ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 27 DE DICIEMBRE DE 2017)
 CAPÍTULO XXIX
 DE LOS DERECHOS DE SANEAMIENTO AMBIENTAL QUE REALICE EL MUNICIPIO
-(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
-Artículo 132 Bis.- Los derechos que establece este capítulo se causarán por la ejecución de saneamiento ambiental que se realice en el municipio, en razón de la ocupación de Hoteles, posadas o casas de huéspedes, hostales y moteles.
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 2021)
+Artículo 132 Bis.- Los derechos que establece este capítulo se causarán por la ejecución del servicio de saneamiento ambiental que se realice el Municipio con el fin de propiciar el desarrollo sustentable, la preservación y restauración del equilibrio ecológico y la protección ambiental.
