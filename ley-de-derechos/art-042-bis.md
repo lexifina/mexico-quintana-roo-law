@@ -69,6 +69,12 @@ CONCEPTOTARIFA
 I. Cuando se enajenen bebidas alcohólicas en envase cerrado con presentación de artesanía mexicana, denominados souvenirs;240.00
 II. Por evento;80.00
 III. Servicio público especializado.110.00
+(ADICIONADA, P.O. 22 DE DICIEMBRE DE 2021)
+IV. Restaurante, Restaurante-Bar240.00
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2021)
+Para el caso de la fracción IV, si el trámite se realiza dentro de los dos primeros meses del año, los contribuyentes no serán sujetos del pago de este derecho.
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2021)
+Tratándose de la apertura del establecimiento a que se refiere la fracción IV, si el permiso se tramita dentro de los dos primeros meses contados a partir de su apertura, tampoco serán sujetos del pago de este derecho.
 CONCEPTOTARIFA
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2020)
 7. PERMISO PROVISIONAL.UMA
