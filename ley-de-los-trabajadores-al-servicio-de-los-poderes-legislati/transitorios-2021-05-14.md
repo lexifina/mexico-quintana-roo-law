@@ -1,0 +1,4 @@
+P.O. 14 DE MAYO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO 109, POR EL QUE SE REFORMA EL PÁRRAFO SEGUNDO DEL ARTÍCULO 35 Y LOS ARTÍCULOS 35 BIS Y 35 TER, TODOS DE LA LEY DE LOS TRABAJADORES AL SERVICIO DE LOS PODERES LEGISLATIVO, EJECUTIVO Y JUDICIAL, DE LOS AYUNTAMIENTOS Y ORGANISMOS DESCENTRALIZADOS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor el primero de enero del año 2022, previa publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente decreto.
