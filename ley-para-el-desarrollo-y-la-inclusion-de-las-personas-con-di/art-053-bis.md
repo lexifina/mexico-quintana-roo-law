@@ -1,0 +1,10 @@
+(NOTA: EL 13 DE ABRIL DE 2023, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS V Y VI, ASÍ COMO EN LOS RESOLUTIVOS SEGUNDO Y TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 60/2022, DECLARÓ LA INVALIDEZ DEL DECRETO 216, POR EL QUE SE ADICIONA ESTE ARTÍCULO, LA CUAL SURTIRÁ EFECTOS A LOS DOCE MESES SIGUIENTES A LA NOTIFICACIÓN DE ESTOS PUNTOS RESOLUTIVOS AL CONGRESO DEL ESTADO DE QUINTANA ROO, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
+(ADICIONADO, P.O. 22 DE MARZO DE 2022)
+Artículo 53 Bis. Son facultades del Poder Legislativo en materia de discapacidad, las siguientes:
+I. Promover y definir las políticas públicas necesarias para eliminar la discriminación contra las personas con discapacidad;
+II. Celebrar convenios de colaboración con autoridades federales, estatales y municipales para el cumplimiento de la presente ley, en beneficio de las personas con discapacidad;
+III. Vigilar y coadyuvar en la esfera de su competencia, al cumplimiento de la presente ley, así como de las demás disposiciones legales y reglamentarias aplicables en esta materia;
+IV. Promover las propuestas e iniciativas generadas con motivo del Parlamento para la Inclusión de las Personas con Discapacidad del Estado de Quintana Roo, que contribuyan al acceso de las personas con discapacidad al desarrollo y la inclusión, así como a la igualdad de las condiciones y a la no violencia y discriminación en su contra;
+V. Promover reformas legislativas en materia de inclusión de no violencia y discriminación en contra de las personas con discapacidad;
+VI. Elaborar, promover y conducir el trabajo legislativo de armonización del marco normativo estatal con el fin de actualizar cada uno de sus preceptos para fomentar la inclusión y eliminar las desigualdades, y la discriminación en contra de las personas con discapacidad, y
+VII. Las demás que resulten de la aplicación de la presente ley y demás ordenamientos legales aplicables a la materia.
