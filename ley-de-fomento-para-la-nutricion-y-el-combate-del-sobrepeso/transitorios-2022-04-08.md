@@ -1,0 +1,5 @@
+P.O. 8 DE ABRIL DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO 217, POR EL QUE SE REFORMA LA DENOMINACIÓN Y SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE FOMENTO PARA LA NUTRICIÓN Y EL COMBATE DEL SOBREPESO, OBESIDAD Y TRASTORNOS DE LA CONDUCTA ALIMENTARIA PARA EL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas aquellas disposiciones que se opongan al presente Decreto.
+TERCERO. La implementación de las acciones que resulten necesarias, a raíz de la entrada en vigor del presente Decreto, deberán ser solventadas por las instancias públicas competentes, con cargo a los recursos financieros que les hayan sido asignados, en el ejercicio fiscal del que se trate, de conformidad a lo establecido en las disposiciones normativas aplicables, sin menoscabo de las ampliaciones presupuestales que les sean autorizadas, cuando así resulte conducente.
