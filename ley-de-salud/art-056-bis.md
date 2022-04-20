@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 20 DE ABRIL DE 2022)
+ARTICULO 56 Bis.- Toda mujer embarazada, tiene derecho a obtener servicios de salud en los términos a que se refiere el Capítulo IV del Título Tercero de esta Ley y con estricto respeto de sus derechos humanos.
+Los servicios de salud a que hace referencia el artículo 34 de la presente Ley, prestarán atención expedita a las mujeres embarazadas que presenten una urgencia obstétrica, solicitada de manera directa o a través de la referencia de otra unidad médica, en las unidades con capacidad para la atención de urgencias obstétricas, independientemente de su derechohabiencia o afiliación a cualquier esquema de aseguramiento.
+De igual forma, deberá proveerse, en su caso, la ayuda alimentaria directa tendiente a mejorar el estado nutricional del grupo materno infantil, cuando existan condiciones que impidan la lactancia materna, indicadas por el médico.
