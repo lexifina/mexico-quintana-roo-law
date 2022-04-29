@@ -1,0 +1,10 @@
+P.O. 28 DE ABRIL DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 229 POR EL QUE SE EXPIDE LA LEY DE RESPONSABILIDAD AMBIENTAL DEL ESTADO DE QUINTANA ROO; SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DEL EQUILIBRIO ECOLÓGICO Y LA PROTECCIÓN AL AMBIENTE DEL ESTADO DE QUINTANA ROO, Y SE ADICIONA LA FRACCIÓN III AL ARTÍCULO 179 SEPTIES DEL CÓDIGO PENAL PARA EL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. El Poder Ejecutivo del Estado, por conducto de la Secretaría de Ecología y Medio Ambiente, tendrá un plazo de noventa días naturales contados a partir de la publicación del presente Decreto a efecto de constituir el Fondo de Responsabilidad Ambiental del Estado de Quintana Roo.
+TERCERO. La Secretaría de Ecología y Medio Ambiente y la Procuraduría Estatal de Protección al Ambiente, deberán realizar las adecuaciones necesarias a sus reglamentos y disposiciones administrativas en un término de noventa días naturales a partir de la publicación del presente Decreto, a efecto de dar cumplimiento a lo establecido en el mismo.
+CUARTO. El Poder Judicial del Estado de Quintana Roo deberá dar capacitación especializada en materia de normatividad ambiental al personal de cada uno de los juzgados de primera instancia en materia civil del Estado.
+QUINTO. La adición realizada al Código Penal para el Estado Libre y Soberano de Quintana Roo, entrará en vigor a los ciento ochenta días naturales, contados a partir de la publicación del presente Decreto.
+SEXTO. Las autoridades correspondientes deberán hacer las modificaciones presupuestales pertinentes para dar cumplimiento a lo establecido en el presente Decreto.
+SEPTIMO. Los procedimientos iniciados con anterioridad a la entrada en vigor del presente Decreto, serán concluidos conforme a las disposiciones vigentes al momento de iniciarse.
+OCTAVO. Se derogan todas las disposiciones normativas que se opongan a lo previsto en el presente Decreto.

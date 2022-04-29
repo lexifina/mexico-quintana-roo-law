@@ -1,0 +1,7 @@
+P.O. 28 DE ABRIL DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 231 POR EL QUE SE REFORMAN LAS FRACCIONES XI Y XII DEL ARTÍCULO 40 Y EL ARTÍCULO 121; Y SE ADICIONA LA FRACCIÓN XIII AL ARTÍCULO 40, TODOS DE LA LEY DE PROTECCIÓN Y BIENESTAR ANIMAL DEL ESTADO DE QUINTANA ROO."]
+PRIMERO. El presente decreto entrará en vigor a partir del día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Las autorizaciones y permisos expedidos previo a la entrada en vigor del presente Decreto, se mantendrán vigentes por el plazo y en los términos establecidos en los mismos.
+TERCERO. A partir de la fecha de entrada en vigor del presente Decreto, no se autorizará el uso de las vías públicas para la exhibición o manejo de ejemplares de vida silvestre, ni para la toma de fotos o videos con ejemplares de vida silvestre.
+CUARTO. A partir de la fecha de entrada en vigor del presente Decreto, no se renovarán, ni se otorgarán licencias de funcionamiento para establecimientos que realicen uso de las vías públicas para la exhibición o manejo de ejemplares de vida silvestre, ni para la toma de fotos o videos con ejemplares de vida silvestre, o para establecimientos que permitan el manejo de, interacción con o contacto con ejemplares de vida silvestre por el público en general y/o el manejo fuera de su encierro.
+QUINTO. Se derogan las disposiciones que se opongan al presente Decreto.

@@ -1,7 +1,8 @@
 (ADICIONADO, P.O. 15 DE FEBRERO DE 2016)
 Artículo 4 ter. Corresponde al Gobernador Constitucional del Estado de Quintana Roo:
 I. Formular, conducir y evaluar la política ambiental en el Estado, conforme al Plan Nacional de Desarrollo, el Plan Estatal de Desarrollo del Estado, las características del lugar, los programas sectoriales correspondientes y los convenios internacionales;
-II. Proponer la creación de un fondo estatal de protección al ambiente para la investigación, estudio y atención de aquellos asuntos que en materia ambiental se consideren de interés para el Estado;
+(REFORMADA, P.O. 28 DE ABRIL DE 2022)
+II. Proponer la creación de un fondo estatal de protección al ambiente para la investigación, estudio y atención de aquellos asuntos que en materia ambiental se considere de interés para el Estado, así como un fondo de responsabilidad ambiental para el pago de la reparación de los daños que sean ocasionados al ambiente;
 III. Promover la participación ciudadana en materia ambiental a través de los órganos de representación ciudadana e instrumentos de participación ciudadana, así como de las organizaciones sociales, pueblos indígenas, ejidos, comunidades, empresas e instituciones académicas;
 IV. Proponer el establecimiento y aplicación de incentivos e instrumentos económicos que promuevan la ejecución de acciones para el cumplimiento de la normatividad ambiental de forma voluntaria y con probado desempeño ambiental;
 V. Celebrar convenios o acuerdos de coordinación con la Federación, con el objeto de que el Estado asuma el ejercicio de las funciones que señalan las leyes generales en materia ambiental;
