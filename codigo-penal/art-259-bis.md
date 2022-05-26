@@ -4,4 +4,5 @@ Existe enriquecimiento ilícito si durante el tiempo que el Servidor Público se
 Al que cometa el delito de enriquecimiento ilícito se le impondrán las siguientes sanciones:
 I. Decomiso en beneficio del Estado de aquellos bienes cuya procedencia no se logre acreditar.
 II. Cuando el monto a que ascienda el enriquecimiento ilícito no exceda del equivalente de cinco mil veces el valor diario de la Unidad de Medida y Actualización se impondrán de seis meses a dos años de prisión y de cien a doscientos días multa.
-III. Cuando el monto a que ascienda el enriquecimiento ilícito exceda del equivalente de cinco mil veces el valor diario de la Unidad de Medida y Actualización se impondrán de dos años a catorce años de prisión y multa de cien a ciento cincuenta días multa.
+(REFORMADA, P.O. 25 DE MAYO DE 2022)
+III. Cuando el monto a que ascienda el enriquecimiento ilícito exceda del equivalente de cinco mil veces el valor diario de la Unidad de Medida y Actualización, se impondrá de dos años a catorce años de prisión y de cien a ciento cincuenta días multa.
