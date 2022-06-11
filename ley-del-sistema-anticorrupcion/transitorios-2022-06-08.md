@@ -1,0 +1,4 @@
+P.O. 8 DE JUNIO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 225 POR EL QUE SE REFORMAN: LAS FRACCIONES XVII, XVIII Y XIX DEL ARTÍCULO 21; EL ARTÍCULO 24; LAS FRACCIONES I Y II DEL ARTÍCULO 29; LAS FRACCIONES XV Y XVI DEL ARTÍCULO 35; Y SE ADICIONAN: LA FRACCIÓN XX AL ARTÍCULO 21, LA FRACCIÓN III AL ARTÍCULO 29 Y LAS FRACCIONES XVII Y XVIII AL ARTÍCULO 35, TODOS DE LA LEY DEL SISTEMA ANTICORRUPCIÓN DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor, previa publicación en el Periódico Oficial del Estado de Quintana Roo, el día en el que inicie la vigencia del Decreto por el que se adiciona un último párrafo al artículo 161 de la Constitución Política del Estado Libre y Soberano de Quintana Roo, en materia de presupuesto de la Secretaría Ejecutiva del Sistema Estatal Anticorrupción.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
