@@ -1,0 +1,1 @@
+Artículo 27-Bis.- (DEROGADO, P.O. 30 DE JUNIO DE 2022)

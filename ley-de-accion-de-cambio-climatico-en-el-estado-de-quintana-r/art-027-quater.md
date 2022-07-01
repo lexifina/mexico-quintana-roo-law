@@ -1,0 +1,4 @@
+Artículo 27-Quáter.- (DEROGADO, P.O. 30 DE JUNIO DE 2022)
+(REFORMADA SU DENOMINACIÓN, P.O. 30 DE JUNIO DE 2022)
+CAPÍTULO VII
+Instrumentos Económicos

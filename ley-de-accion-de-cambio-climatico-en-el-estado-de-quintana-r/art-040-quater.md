@@ -1,0 +1,14 @@
+(ADICIONADO, P.O. 30 DE JUNIO DE 2022)
+Artículo 40 Quater.- Para efectos de lo establecido en el artículo anterior, el Gobierno del Estado y sus municipios, deberán:
+I. Convocar a las organizaciones de los sectores social y privado a que manifiesten sus opiniones y propuestas en materia de adaptación y mitigación al cambio climático;
+II. Proporcionar a la sociedad de manera clara, oportuna y comprensible, la información necesaria para hacer efectivo su derecho a participar en el proceso de toma de decisiones;
+III. Establecer las condiciones propicias para que la participación pública en procesos de toma de decisiones en materia de cambio climático, se adecúe a las características sociales, económicas, culturales, geográficas y de género del público al que va dirigido;
+IV. Promover la celebración de convenios de concertación con organizaciones sociales y privadas interesadas, para fomentar acciones de adaptación y mitigación del cambio climático; el establecimiento, administración y manejo de áreas naturales protegidas; así como para brindar asesoría en actividades de aprovechamiento sustentable de los recursos naturales y en la realización de estudios e investigaciones en la materia y emprender acciones conjuntas;
+V. Facilitar la comprensión de la información en materia de cambio climático, cuando el público participante hable mayoritariamente una lengua indígena;
+VI. Promover, cuando corresponda, la valoración del conocimiento local, el diálogo y la interacción de las diferentes visiones y saberes en el tema de cambio climático;
+VII. Brindar el apoyo a personas o grupos en situación de vulnerabilidad para involucrarlos de manera activa, oportuna y efectiva en los mecanismos de participación, utilizando los medios y formatos adecuados, a fin de eliminar las barreras a la participación;
+VIII. Tomar en consideración el resultado del proceso de participación de que se trate, y en su caso incluir las propuestas procedentes dentro de sus políticas en materia de cambio climático;
+IX. Velar por que, una vez adoptada la decisión en materia de cambio climático, el público sea oportuna y efectivamente informado de los resultados, motivos y fundamentos que la sustentan, así como del modo en que se tuvieron en cuenta sus observaciones, para lo cual podrá utilizar los medios escritos, electrónicos, orales y métodos tradicionales que estén a su alcance;
+X. Concertar acciones e inversiones con los sectores social y privado con la finalidad de instrumentar medidas de adaptación y mitigación al cambio climático;
+XI. Promover el otorgamiento de reconocimientos a los esfuerzos más destacados de la sociedad para erradicar los efectos adversos del cambio climático, y
+XII. Las demás acciones necesarias para asegurar el derecho a la participación pública informada, abierta e inclusiva.

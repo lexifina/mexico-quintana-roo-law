@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 30 DE JUNIO DE 2022)
+Artículo 42 Bis.- Para los efectos de esta Ley, la Secretaría dará seguimiento al avance y cumplimiento de las medidas y metas del Programa Estatal por medio del Sistema MRV-ME, que integre los mecanismos de medición, reporte y verificación de las medidas de mitigación y el monitoreo y evaluación de las medidas de adaptación.
+Los integrantes de la Comisión, así como otras entidades responsables de la implementación de medidas contenidas en el Programa Estatal, reportarán a la Secretaría los avances en el cumplimiento de estas, en los términos establecidos en la presente Ley y los procedimientos señalados por la Secretaría.
