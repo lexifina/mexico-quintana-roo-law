@@ -1,0 +1,8 @@
+LEY DE PROTECCIÓN Y FOMENTO APÍCOLA DEL ESTADO DE QUINTANA ROO
+Ley publicada en el Número 113 Extraordinario del Periódico Oficial del Estado de Quintana Roo, el miércoles 13 de julio de 2022.
+DECRETO NÚMERO: 243
+POR EL QUE SE EXPIDE LA LEY DE PROTECCIÓN Y FOMENTO APÍCOLA DEL ESTADO DE QUINTANA ROO.
+LA HONORABLE XVI LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
+D E C R E T A:
+ÚNICO. Se expide la Ley de Protección y Fomento Apícola del Estado de Quintana Roo, para quedar como sigue:
+LEY DE PROTECCIÓN Y FOMENTO APÍCOLA DEL ESTADO DE QUINTANA ROO.
