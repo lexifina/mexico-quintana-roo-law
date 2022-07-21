@@ -1,0 +1,6 @@
+P.O. 20 DE JULIO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 252 POR EL QUE SE REFORMA LA FRACCIÓN VII DEL ARTÍCULO 48 Y LA FRACCIÓN I DEL ARTÍCULO 52; Y SE ADICIONA EL PÁRRAFO SEGUNDO AL ARTÍCULO 37 Y LA FRACCIÓN VII AL ARTÍCULO 48-QUÁTER, TODOS DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas aquellas disposiciones que se opongan al presente Decreto.
+TERCERO. La implementación de las acciones que resulten necesarias, derivado de la entrada en vigor del presente Decreto, deberán ser solventadas, por las instancias públicas competentes, con cargo a los recursos financieros que les hayan sido asignados, en el ejercicio fiscal del que se trate, de conformidad a lo establecido en las disposiciones normativas aplicables, sin menoscabo de las ampliaciones presupuestales que les sean autorizadas, cuando así resulte conducente.
+La implementación de las acciones a las que se refiere el presente Decreto, deberán ser materializadas en su totalidad, a más tardar, en el ejercicio fiscal correspondiente al año 2023.
