@@ -5,5 +5,6 @@ II. Promover la no discriminación o exclusión social y la construcción de una
 III. Impulsar la integralidad y transversalidad de las políticas, programas y acciones de la Administración Pública Estatal y Municipales para el desarrollo del pueblo maya y las comunidades Indígenas;
 IV. Fomentar el desarrollo sustentable para el uso racional de los recursos naturales de las regiones indígenas sin arriesgar el patrimonio de las generaciones futuras;
 V. Elaborar con perspectiva de género las políticas, programas y acciones que lleve a cabo la Administración Pública Estatal y Municipales para la promoción de la participación, respeto, equidad y oportunidades plenas para las mujeres y hombres indígenas;
-VI. Consultar al pueblo maya y las comunidades indígenas cada vez que el Ejecutivo Estatal promueva reformas jurídicas y actos administrativos, programas de desarrollo o proyectos que impacten sus condiciones de vida y su entorno, y
+(REFORMADA, P.O. 24 DE AGOSTO DE 2022)
+VI. Fungir como órgano técnico en las consultas previas al pueblo maya, las comunidades indígenas y afromexicanas conforme a la Ley correspondiente, respecto de actos de naturaleza administrativa y legislativas que pudiera depararles alguna afectación a sus derechos, o bien la regulación de los mismos, y
 VII. Las demás que le confieran su órgano de gobierno u otras disposiciones legales.
