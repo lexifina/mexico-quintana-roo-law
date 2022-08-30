@@ -1,0 +1,4 @@
+P.O. 29 DE AGOSTO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 256 POR EL QUE SE REFORMAN LA FRACCIÓN VIII DEL ARTÍCULO 4, LA FRACCIÓN IX DEL ARTÍCULO 14, LA FRACCIÓN XIX DEL ARTÍCULO 28, EL PRIMER PÁRRAFO DEL ARTÍCULO 49, EL ARTÍCULO 63 Y EL ARTÍCULO 64 TODOS DE LA LEY DE OBRAS PÚBLICAS Y SERVICIOS RELACIONADOS CON LAS MISMAS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El Presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
