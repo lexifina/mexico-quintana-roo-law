@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE SEPTIEMBRE DE 2022)
+Artículo 1019 QUÁTER. La persona juzgadora puede, en beneficio de las niñas, niños o adolescentes, modificar el ejercicio de la patria potestad o custodia cuando la tenga decretada judicialmente, ya sea provisional o definitiva sobre ellos, cuando se acredite que las niñas, niños o adolescentes, han sido o están siendo utilizados como medio para cometer violencia vicaria, contra alguno de sus progenitores.

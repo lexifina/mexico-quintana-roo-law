@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 10 DE DICIEMBRE DE 2010)
-Artículo 983 QUÁTER.- Por lo que hace a los diversos tipos en que se puede presentar la violencia familiar, se estará a lo dispuesto en la Ley de Acceso de las Mujeres a una Vida Libre de Violencia del Estado de Quintana Roo.
+(REFORMADO, P.O. 7 DE SEPTIEMBRE DE 2022)
+Artículo 983 Quáter.- Por lo que hace a los diversos tipos en que se puede presentar la violencia familiar y/o violencia vicaria, se estará a lo dispuesto en la Ley de Acceso de las Mujeres a una Vida Libre de Violencia del Estado de Quintana Roo, la Ley de Asistencia y Prevención de la Violencia Familiar del Estado de Quintana Roo y la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Quintana Roo, sin perjuicio de las demás disposiciones normativas aplicables en la materia, así como de lo dispuesto en los instrumentos internacionales suscritos por nuestro país en la materia.
