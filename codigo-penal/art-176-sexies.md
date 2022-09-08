@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 7 DE SEPTIEMBRE DE 2022)
+ARTICULO 176 SEXIES.- La persona servidora pública que retarde o entorpezca dolosamente o por negligencia la procuración o administración de justicia, cuando se trate de la investigación de un delito de violencia vicaria, sustracción de menores o violencia familiar, se le impondrán de uno a cuatro años de prisión y de quinientos a mil quinientos días multa, además será destituido e inhabilitado de cuatro a ocho años para desempeñar otro empleo, cargo o comisión públicos (sic).

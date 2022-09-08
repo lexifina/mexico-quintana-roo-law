@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 7 DE SEPTIEMBRE DE 2022)
+ARTÍCULO 3 BIS.- La prevención es el conjunto de acciones que deberán llevar a cabo el Estado y los Municipios por medio de sus dependencias y entidades para evitar la comisión de delitos y otros actos de violencia contra las mujeres, atendiendo a los posibles factores de riesgo tanto en los ámbitos público y privado.
+La prevención comprende medidas generales y especiales, entre las que deberán privilegiarse las de carácter no penal, así como las medidas de seguridad que determinen los órganos jurisdiccionales en materia de registro de personas sentenciadas por delitos relacionados con violencia sexual.

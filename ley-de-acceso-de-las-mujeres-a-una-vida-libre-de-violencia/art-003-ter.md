@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE SEPTIEMBRE DE 2022)
+ARTÍCULO 3 TER.- Las medidas de prevención general son aquellas que desde los distintos ámbitos de acción de las dependencias y entidades del Estado y los Municipios, están destinadas a toda la colectividad teniendo el propósito de evitar la comisión de conductas consideradas como delitos y otros actos de violencia contra las mujeres, así como propiciar su empoderamiento.

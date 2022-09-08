@@ -1,0 +1,18 @@
+(ADICIONADO, P.O. 7 DE SEPTIEMBRE DE 2022)
+ARTICULO 176 QUINQUIES.- Comete el delito de violencia vicaria, quien dolosamente cause un daño por sí o por interpósita persona a otra con la que mantenga o haya mantenido una relación de hecho, de concubinato o matrimonio, utilizando como medio para causar ese daño a las hijas o hijos de la víctima generándoles también a estos últimos un daño físico y/o psicoemocional.
+Se considera que existe la finalidad de dañar a la víctima, utilizando como medio a las hijas o hijos de esta, cuando concurra cualquiera de las circunstancias siguientes:
+I. Cuando existan antecedentes de violencia familiar.
+II. Cuando sin orden de autoridad competente, se sustraiga de la custodia o guarda a los hijas o hijos de ésta.
+III. Existan amenazas de la persona agresora hacía la víctima, de no volver a ver a las hijas o hijos, o de quitarle la custodia de éstos.
+IV. Se evite la convivencia de hijas o hijos con la víctima.
+V. Exista cualquier acto de manipulación que tenga por objeto que las hijas o hijos menores de edad rechacen, generen rencor, antipatía, desagrado o temor contra la víctima.
+VI. Se provoque la dilación dolosa de los procesos jurídicos existentes con la intención de romper el vínculo filial de la víctima con sus hijos o hijas.
+VII. Se cause la muerte o suicidio de la víctima y/o de sus hijas e hijos, a consecuencia de las acciones de la persona agresora.
+A quien cometa el delito de violencia vicaria se le impondrá de cuatro a seis años de prisión. Además, la persona juzgadora podrá imponer la pérdida de la patria potestad o pérdida de la custodia, de los derechos hereditarios y de alimentos, y en su caso a juicio de la persona juzgadora, prohibición de ir a una circunscripción territorial determinada o de residir en ella.
+La pena de prisión prevista se incrementará hasta en una tercera parte en su mínimo y máximo si se incurre en daño físico a las hijas o hijos de la víctima.
+De igual forma, la pena de prisión prevista se incrementará hasta en una tercera parte en su mínimo y máximo cuando el delito de violencia vicaria sea cometido siendo el sujeto activo un hombre y el sujeto pasivo una mujer.
+Si la persona agresora devuelve a los niños, niñas o adolescentes a la víctima en cualquier etapa del procedimiento, se podrá reducir hasta en una tercera parte de su mínimo y máximo la pena de prisión.
+Asimismo, se sujetará a la persona agresora, a participar en servicios reeducativos integrales, especializados y gratuitos, y a tratamiento psicoterapéutico reeducativo correspondiente, para corregir las conductas de violencia vicaria, hasta por el mismo tiempo de duración de la pena de prisión.
+El Ministerio Público emitirá las órdenes de protección de emergencia o preventivas para salvaguardar la integridad física y psíquica, o ambas, de la víctima, en los términos que señala la Ley de Acceso de las Mujeres a una Vida Libre de Violencia del Estado de Quintana Roo, la Ley de Asistencia y Prevención de la Violencia Familiar del Estado de Quintana Roo, y la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Quintana Roo, y exhortará a la persona probable responsable para que se abstenga de cualquier conducta que sea ofensiva para la víctima, sin perjuicio de solicitar a la persona juzgadora que imponga a la persona probable responsable, algunas de las órdenes de protección referidas.
+Este delito se perseguirá de oficio.
+Para efectos del presente artículo, se entenderá por relación de hecho aquélla entre dos o más personas unidas por relación sentimental, de afectividad, intimidad, reciprocidad, dependencia, solidaridad y/o ayuda mutua, cuya convivencia es constante y estable, aunque no vivan en el mismo domicilio.
