@@ -1,0 +1,8 @@
+P.O. 8 DE SEPTIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO 269, POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE INSTITUCIONES Y PROCEDIMIENTOS ELECTORALES PARA EL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. La implementación de las acciones que resulten necesarias, derivado de la entrada en vigor del presente decreto, deberán ser solventadas por el Tribunal Electoral de Quintana Roo, con cargo a los recursos financieros que le hayan sido asignados, en el ejercicio fiscal del que se trate, de conformidad a lo establecido en las disposiciones normativas aplicables, sin menoscabo de las ampliaciones presupuestales que le sean autorizadas, cuando así resulte conducente.
+La implementación de las acciones a las que se refiere el presente Decreto, deberán ser materializadas en su totalidad, a más tardar, en el ejercicio fiscal correspondiente al año 2023.
+La remuneración de la persona titular de la Defensoría será homologada, por lo menos, a la que perciban las personas secretarías técnicas, mientras que, la remuneración que perciban las personas defensoras públicas será homologada, por lo menos, a la que perciba el personal de Actuaría.
+TERCERO. El Tribunal Electoral de Quintana Roo, dentro de los 90 días naturales posteriores a la entrada en vigor del presente decreto, deberá adecuar sus disposiciones normativas internas, en los términos que corresponda, a efecto de dar cumplimiento a lo dispuesto en el mismo.
+CUARTO. Se derogan las disposiciones que se opongan al presente Decreto.

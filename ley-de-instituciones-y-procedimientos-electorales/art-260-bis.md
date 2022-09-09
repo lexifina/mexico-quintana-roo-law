@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE SEPTIEMBRE DE 2022)
+Artículo 260 Bis. El Tribunal contará con una Defensoría Pública Electoral para la Protección de los Derechos Político Electorales, con autonomía técnica y operativa, cuya finalidad es brindar de manera gratuita a la ciudadanía, los servicios de asesoría y defensa de sus derechos político electorales a los que se refiere la presente ley, así como las demás disposiciones aplicables, incluyendo los relacionados a los procesos de participación ciudadana previstos en la ley de la materia.

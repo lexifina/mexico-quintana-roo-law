@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE SEPTIEMBRE DE 2022)
+Artículo 260 Sexties. Los servicios de la Defensoría se prestarán, cuando medie solicitud expresa de la parte interesada, facultándose expresamente, al Instituto para el Desarrollo del Pueblo Maya y las Comunidades Indígenas del Estado de Quintana Roo, para representar a las personas pertenecientes a los pueblos y comunidades indígenas, en los términos dispuestos por la fracción XII del artículo 59-C de la Ley de Derechos, Cultura y Organización Indígena del Estado de Quintana Roo.
