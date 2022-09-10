@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE SEPTIEMBRE DE 2022)
+Artículo 76 Quindecies. Las especificaciones referentes a la estructura, colores y tipografía que deberán respetarse en el uso del distintivo, son las contenidas en el Manual de Identidad Gráfica de la Marca "Hecho en Quintana Roo" elaborado por la Secretaría y publicado en el Periódico Oficial del Estado de Quintana Roo, mismo que estará a disposición de las personas interesadas y del público en general a través del sitio electrónico oficial de Internet de dicha dependencia.

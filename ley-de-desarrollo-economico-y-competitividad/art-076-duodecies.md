@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE SEPTIEMBRE DE 2022)
+Artículo 76 Duodecies.- Para obtener la autorización del uso del distintivo, las personas físicas y morales a que se refiere el párrafo segundo del artículo 76 decies deberán presentar ante la Secretaría las solicitudes de productos y servicios, así como el expediente adjunto debidamente integrado con la documentación requerida en los artículos subsecuentes, respectivamente.

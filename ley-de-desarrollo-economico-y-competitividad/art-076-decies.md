@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 9 DE SEPTIEMBRE DE 2022)
+Artículo 76 Decies.- La autorización del uso del distintivo "Hecho en Quintana Roo" como marca es otorgada por el Instituto Mexicano de la Propiedad Industrial y se gestiona ante la Secretaría, la cual realizará las acciones necesarias para la obtención del mismo.
+La autorización a que se refiere este numeral, puede ser solicitada por las personas físicas que tributen bajo cualquier régimen fiscal que sea distinto a sueldos y salarios e ingresos asimilados a salarios y las personas morales que tributen bajo cualquier régimen fiscal, siempre y cuando produzcan, elaboren, y/o fabriquen productos en territorio quintanarroense.

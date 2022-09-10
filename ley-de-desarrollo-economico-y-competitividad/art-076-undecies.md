@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE SEPTIEMBRE DE 2022)
+Artículo 76 Undecies.- El Gobierno del Estado, a través de la Secretaría, otorgará el permiso de uso del distintivo de forma gratuita, no obstante, en cumplimiento a lo dispuesto en la Ley Federal de Protección a la Propiedad Industrial, el solicitante deberá cubrir el pago de la tarifa de inscripción correspondiente, sin menoscabo de las variaciones al monto que los ordenamientos federales impongan.
