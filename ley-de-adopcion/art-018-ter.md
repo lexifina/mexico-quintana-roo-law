@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE SEPTIEMBRE DE 2022)
+ARTÍCULO 18 TER.- Las personas interesadas en adopción, tienen la obligación de asistir al curso de inducción al proceso de adopción establecido en el Reglamento de la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Quintana Roo, que para tal efecto brinde la Procuraduría y se le hará entrega de una constancia que acredite su asistencia.
