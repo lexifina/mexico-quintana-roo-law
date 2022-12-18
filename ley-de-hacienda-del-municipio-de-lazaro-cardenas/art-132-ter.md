@@ -7,7 +7,6 @@ Quedan exentos del pago de este derecho:
 a) Las personas que presenten alguna discapacidad.
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 2021)
 b) Quienes acrediten ser residentes de Lázaro Cárdenas;
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 2021)
-c) Quien acredite ser Quintananarroense (sic); y
+c) (DEROGADO, P.O. 17 DE DICIEMBRE DE 2022)
 (ADICIONADO, P.O. 27 DE DICIEMBRE DE 2021)
 d) Quienes, sin ser residentes, desarrollen un trabajo personal subordinado, regido por la legislación laboral, durante el periodo de tiempo en el cual desempeñen el trabajo que motiva su visita o estancia en el Municipio.

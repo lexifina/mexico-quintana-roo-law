@@ -6,5 +6,5 @@ El cobro del derecho que se aplique a aquellos huéspedes adicionales que se alo
 2 huéspedes por habitación por noche: 45 % de la UMA
 3 huéspedes por habitación por noche: 60 % de la UMA
 4 huéspedes o más por habitación por noche: 75 % de la UMA
-(ADICIONADO [N. DE E. REFORMADO], P.O. 27 DE DICIEMBRE DE 2021)
-Tratándose de los visitantes, que no se hospeden en algún establecimiento de los referidos en el párrafo anterior, el pago será igualmente de 30% de la U.M.A. y lo deberán realizar a través de la operadora marítima de transporte de pasajeros con ruta dentro del ámbito territorial del municipio, o en su caso a través del módulo que asigne la tesorería municipal para recibir el derecho.
+(REFORMADO, P.O. 17 DE DICIEMBRE DE 2022)
+Tratándose de los visitantes, que no se hospeden en algún establecimiento de los referidos en el párrafo anterior, el pago será igualmente de 30% de la U.M.A. y lo deberán realizar a través de la operadora marítima de transporte de pasajeros con ruta dentro del ámbito territorial del municipio, de los prestadores de servicios turísticos (lanchas) o en su caso a través del módulo que asigne la tesorería municipal para recibir el derecho.
