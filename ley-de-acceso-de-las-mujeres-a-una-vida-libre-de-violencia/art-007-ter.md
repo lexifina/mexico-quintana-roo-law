@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2022)
+ARTÍCULO 7 TER.- El Gobierno del Estado y los municipios, en el respectivo ámbito de sus facultades y competencias, deberán generar políticas públicas dirigidas a identificar, prevenir, atender y disminuir los factores que propician está modalidad de violencia, creando campañas de información y concientización para erradicar los roles discriminatorios, los estereotipos sexistas, la resolución violenta de conflictos y la misoginia.

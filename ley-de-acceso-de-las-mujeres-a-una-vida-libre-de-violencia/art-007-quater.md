@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2022)
+ARTÍCULO 7 QUÁTER.- El Estado a través de sus dependencias gubernamentales y en el ámbito de sus respectivas facultades y competencias, diseñará e implementará programas que brinden servicios reeducativos integrales para víctimas y agresores, además de proporcionar atención psicología (sic) y legal de manera gratuita para quienes sean víctimas de esta modalidad de violencia.
+El Instituto Quintanarroense de la Mujer, previo acuerdo con las autoridades educativas, deberá realizar cursos y talleres encaminados a promover espacios libres de violencia contra las mujeres, de prejuicios o estereotipos sexistas con enfoque en derechos humanos y perspectiva de género en las instituciones educativas del Estado.
