@@ -67,7 +67,9 @@ CONCEPTOTARIFA
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2020)
 6. PERMISOS ESPECIALES.UMA
 I. Cuando se enajenen bebidas alcohólicas en envase cerrado con presentación de artesanía mexicana, denominados souvenirs;240.00
-II. Por evento;80.00
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2022)
+II. Por evento, por cada punto
+de venta80.00
 III. Servicio público especializado.110.00
 (ADICIONADA, P.O. 22 DE DICIEMBRE DE 2021)
 IV. Restaurante, Restaurante-Bar240.00

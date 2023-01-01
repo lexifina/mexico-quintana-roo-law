@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2022)
+Artículo 60-Sexies. El impuesto se causará en el momento en que el enajenante perciba efectivamente el importe correspondiente al precio de venta final de las bebidas con contenido alcohólico objeto de la presente sección y cuando las contraprestaciones se cobren parcialmente, el impuesto se calculará aplicando la tasa prevista en el artículo 60 Quinquies, a la parte de la contraprestación cobrada.
+Se considera que se percibe efectivamente el importe correspondiente al precio final, cuando sea cobrado en efectivo, transferencia bancaria, cheque, tarjeta de débito o crédito, en bienes o en servicios, aun cuando aquéllas correspondan a anticipos, depósitos o a cualquier otro concepto sin importar el nombre con el que se les designe, o bien, cuando el interés del acreedor quede satisfecho mediante cualquier forma de extinción de las obligaciones que den lugar a las contraprestaciones.
+Los contribuyentes sujetos al pago de este impuesto no lo trasladarán de forma expresa y por separado a las personas que adquieran las bebidas con contenido alcohólico en envase cerrado en términos del artículo 60-Bis. El impuesto deberá incluirse en el precio correspondiente, sin que se considere que forma parte del precio de venta al público, ni se entienda violatorio de precios o tarifas, incluyendo las oficiales, por lo que no se desglosará en el comprobante que al efecto se emita.
+El impuesto no será acreditable contra otros impuestos locales o federales.
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2022)
+Del pago

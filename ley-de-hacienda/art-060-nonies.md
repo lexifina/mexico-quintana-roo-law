@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2022)
+Artículo 60-Nonies. Aquellos contribuyentes que adquieran bebidas con contenido alcohólico en envase cerrado, para su posterior comercialización en envase abierto, estarán obligados a presentar declaración informativa semestral de las compras efectuadas a sus proveedores, a más tardar el día 17 del mes julio y el día 17 del mes de enero de cada año, por medio de los formatos que la Secretaría de a conocer por conducto del SATQ mediante reglas de carácter general.
