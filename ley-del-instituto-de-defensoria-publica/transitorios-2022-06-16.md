@@ -1,0 +1,6 @@
+P.O. 16 DE JUNIO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 242, POR EL QUE SE REFORMAN DIVERSAS DISPOSICIONES DE LA LEY DE VÍCTIMAS DEL ESTADO DE QUINTANA ROO, Y POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DEL INSTITUTO DE DEFENSORÍA PÚBLICA DEL ESTADO DE QUINTANA ROO, EN MATERIA DE ASESORÍA Y DEFENSA DE LAS PERSONAS INDÍGENAS".]
+PRIMERO. El presente Decreto entrará en vigor el día 1 de enero de 2023, previa publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. En un plazo que no exceda los ciento ochenta días naturales posteriores a la entrada en vigor del presente Decreto, la Comisión Ejecutiva de Atención a Víctimas del Estado de Quintana Roo, el Consejo de la Judicatura del Poder Judicial del Estado y el Instituto de Defensoría Pública del Estado, deberán llevar a cabo las adecuaciones reglamentarias, normativas y estructurales para dar cumplimiento al presente Decreto.
+TERCERO. El Poder Judicial del Estado de Quintana Roo incluirá, en su Proyecto de Presupuesto de Egresos para el Ejercicio Fiscal 2023, los recursos necesarios para la ejecución de lo establecido en el presente Decreto.
+CUARTO. Se derogan todas las disposiciones legales que se opongan al presente Decreto.
