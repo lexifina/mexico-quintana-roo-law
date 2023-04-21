@@ -1,0 +1,8 @@
+LEY DE SEGURIDAD CIUDADANA DEL ESTADO DE QUINTANA ROO
+Ley publicada en el Número 6 Especial del Periódico Oficial del Estado de Quintana Roo, el jueves 20 de abril de 2023.
+Decreto NÚMERO 057
+POR EL QUE SE EXPIDE LA LEY DE SEGURIDAD CIUDADANA DEL ESTADO DE QUINTANA ROO.
+LA HONORABLE XVII LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO,
+D E C R E T A :
+ÚNICO. Se expide la Ley de Seguridad Ciudadana del Estado de Quintana Roo, para quedar como sigue:
+LEY DE SEGURIDAD CIUDADANA DEL ESTADO DE QUINTANA ROO
