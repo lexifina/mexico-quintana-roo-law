@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE ABRIL DE 2023)
+Artículo 111 Bis. Las concesiones para prestar el servicio público de transporte en las modalidades de competencia de esta Ley, estarán sujetas a la obligación de refrendarse anualmente durante los primeros tres meses de cada año, para lo cual deberán estar actualizadas en apego a la normatividad vigente. Lo anterior, en los términos que disponga el Instituto.

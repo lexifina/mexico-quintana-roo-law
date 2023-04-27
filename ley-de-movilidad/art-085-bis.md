@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE ABRIL DE 2023)
+Artículo 85 Bis. El servicio privado de Transporte Turístico es aquel que previo permiso del Instituto, se realiza en vehículos con finalidad turística, de ocio y recreo, ofertados y contratados para la satisfacción de necesidades de desplazamientos de personas que tengan la condición de usuarios turísticos por lo que no está sometido a reiteración de itinerario, horario y calendario.
