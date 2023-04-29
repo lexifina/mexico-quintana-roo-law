@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE ABRIL DE 2023)
+Artículo 86 Bis. El Servicio privado de Transporte de pasajeros contratado a través de plataformas Tecnológicas o Digitales requerirá de un permiso para el prestador del servicio y autorización para la persona moral mediadora del mismo, expedido por el Instituto de Movilidad del Estado de Quintana Roo, el cual se regulará únicamente conforme a lo previsto en la presente Ley y su Reglamento.

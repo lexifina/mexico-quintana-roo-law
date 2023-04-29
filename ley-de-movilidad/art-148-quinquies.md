@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE ABRIL DE 2023)
+Artículo 148 Quinquies. Las personas morales que medien o promuevan la contratación del Servicio Privado de Transporte de pasajeros a través de plataformas Tecnológicas o Digitales, son aquellas sociedades titulares de los derechos de propiedad intelectual de una aplicación móvil o que cuentan con licencia para su uso, teniendo como objetivo exclusivamente la gestión de servicios de transporte, vinculando a través de dicha aplicación a personas usuarias de transporte.
