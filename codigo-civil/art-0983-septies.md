@@ -6,6 +6,6 @@ III. Monto de la obligación adeudada;
 IV. Órgano jurisdiccional que ordeno el registro, y
 V. Datos del expediente o causa jurisdiccional de la que deriva su inscripción.
 El Certificado a que se refiere el presente artículo, será expedido dentro de los tres días hábiles siguientes contados a partir de su solicitud.
-(F. DE E., P.O. 8 DE OCTUBRE DE 1980)
-TITULO TERCERO
-De la niñez
+(REFORMADA SU DENOMINACIÓN, P.O. 31 DE MAYO DE 2023)
+TÍTULO TERCERO
+De la Niñez y la Adolescencia

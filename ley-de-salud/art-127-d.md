@@ -3,7 +3,8 @@ CAPITULO II
 DE LOS DERECHOS DE LOS ENFERMOS EN SITUACION TERMINAL
 (ADICIONADO, P.O. 6 DE SEPTIEMBRE DE 2013)
 ARTICULO 127-D.- Los pacientes enfermos en situación terminal tienen los siguientes derechos:
-I. Recibir atención médica integral;
+(REFORMADA, P.O. 31 DE MAYO DE 2023)
+I. Recibir atención médica integral con perspectiva de género y de derechos humanos;
 II. Ingresar a las instituciones de salud cuando requiera atención médica;
 III. Dejar voluntariamente la institución de salud en que esté hospitalizado, de conformidad a las disposiciones aplicables;
 IV. Recibir un trato digno, respetuoso y profesional procurando preservar su calidad de vida;
