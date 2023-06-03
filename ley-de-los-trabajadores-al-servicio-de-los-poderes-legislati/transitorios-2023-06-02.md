@@ -1,0 +1,6 @@
+P.O. 2 DE JUNIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 073 POR EL QUE SE ADICIONAN LOS ARTÍCULOS 35-SEPTIES, 35-OCTIES Y 35-NONIES A LA LEY DE LOS TRABAJADORES AL SERVICIO DE LOS PODERES LEGISLATIVO, EJECUTIVO Y JUDICIAL, DE LOS AYUNTAMIENTOS Y ORGANISMOS DESCENTRALIZADOS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO. Dentro de los noventa días naturales siguientes a la entrada en vigor del presente Decreto, el poder Ejecutivo, deberá realizar las adecuaciones que correspondan al Reglamento de la Ley de los Trabajadores al Servicio de los Poderes Legislativo, Ejecutivo y Judicial, de los Ayuntamientos y Organismos Descentralizados del Estado de Quintana Roo.
+CUARTO. Dentro de los 90 días naturales siguientes a la entrada en vigor del presente Decreto, los Poderes Legislativo, Ejecutivo y Judicial, los Ayuntamientos y Organismos Descentralizados, deberán realizar las adecuaciones que correspondan a su normatividad aplicable, a efecto de dar cumplimiento a su contenido.

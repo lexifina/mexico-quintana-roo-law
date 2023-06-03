@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE JUNIO DE 2023)
+ARTÍCULO 30 NONIES.- Las órdenes de protección podrán ser dictadas de oficio o a solicitud de la mujer en situación de violencia, de su representante legal o del Ministerio Público, tratándose de niñas víctimas de un delito, la autoridad judicial se encuentra obligada a hacer la determinación del interés superior de la niñez, a fin de dictar órdenes de protección, aun cuando no exista una solicitud.

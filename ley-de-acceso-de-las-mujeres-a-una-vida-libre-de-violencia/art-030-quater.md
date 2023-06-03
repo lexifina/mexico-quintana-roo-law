@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 2 DE JUNIO DE 2023)
+ARTÍCULO 30 QUATER.- Las órdenes de protección podrán solicitarse en cualquier entidad federativa distinta a donde ocurrieron los hechos, sin que la competencia en razón del territorio pueda ser usada como excusa para no recibir la solicitud.
+Para los fines mencionados en el párrafo que antecede, el Estado de Quintana Roo también podrá celebrar convenios de colaboración con otras entidades federativas.
+La Fiscalía General del Estado, el Poder Judicial del Estado y los Ayuntamientos que integran el Estado de Quintana Roo celebrarán convenios de colaboración para garantizar la efectiva protección de las mujeres y las niñas conforme a los principios rectores de las órdenes de protección.
+Durante los primeros seis días posteriores a la implementación de las órdenes, la autoridad que la emitió mantendrá contacto directo con la mujer víctima de violencia cada veinticuatro horas. A partir del séptimo día, se establecerá un plan de seguimiento personalizado, de acuerdo a las circunstancias, la valoración del riesgo y el avance en la carpeta de investigación.
