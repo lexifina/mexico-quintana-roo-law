@@ -1,3 +1,4 @@
+(REFORMADO PRIMER PÁRRAFO, P.O. 6 DE JUNIO DE 2023)
+ARTÍCULO 3 QUINQUIES.- Se crea el Registro de Personas Agresoras Sexuales del Estado de Quintana Roo, como mecanismo efectivo de prevención y protección para los efectos de atender al factor de riesgos de reincidencia y repetición de conductas de violencia sexual, a favor de víctimas o potenciales víctimas de esta violencia.
 (ADICIONADO, P.O. 7 DE SEPTIEMBRE DE 2022)
-ARTÍCULO 3 QUINQUIES.- Se crea el Registro Público de Personas Agresoras Sexuales del Estado de Quintana Roo, como mecanismo efectivo de prevención y protección para los efectos de atender al factor de riesgos de reincidencia y repetición de conductas de violencia sexual, a favor de víctimas o potenciales víctimas de esta violencia.
 La información contenida en el presente Registro deberá ser considerada por las autoridades estatales, los ayuntamientos municipales y los organismos constitucionalmente autónomos para la elaboración de acciones y políticas públicas destinadas al combate y prevención de los delitos cometidos en contra de las mujeres.
