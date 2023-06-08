@@ -10,7 +10,7 @@ Séptimo. El sistema integral de formación, capacitación y actualización del 
 Octavo. Hasta que la Autoridad Educativa Federal publique los lineamientos correspondientes para los diferentes temas que se mencionan en esta Ley, se seguirá aplicando la normatividad aplicable con el fin de continuar con el servicio de educación.
 Noveno. El Programa Educativo Estatal previsto en el artículo 101 de esta Ley se presentará en un plazo no mayor a sesenta días contados a partir de la entrada en vigor de esta ley. Dicho Programa se actualizará en el caso de los cambios de administración del Poder Ejecutivo Estatal y observará lo establecido en la Ley de Educación para el Estado de Quintana Roo.
 Décimo. En razón de la entrada en vigor de la presente ley, la Legislatura del Estado expedirá la Ley de Educación Superior del Estado de Quintana Roo, en armonización con la Ley General de Educación Superior.
-Décimo Primero. En cumplimiento a lo establecido en la fracción XIV del artículo 105 de la presente Ley, la Legislatura del Estado deberá expedir la ley específica para proveer la gratuidad de uniformes, útiles escolares y mochilas en el nivel educativo básico.
+Décimo Primero. (DEROGADO, P.O. 7 DE JUNIO DE 2023)
 SALÓN DE SESIONES DEL HONORABLE PODER LEGISLATIVO, EN LA CIUDAD DE CHETUMAL, CAPITAL EL ESTADO DE QUINTANA ROO, A LOS VEINTE DÍAS DEL MES DE ABRIL DEL AÑO DOS MIL VEINTIDÓS.
 DIPUTADA PRESIDENTA:
 L.A.E. EUTERPE ALICIA GUTIÉRREZ VALASIS.
