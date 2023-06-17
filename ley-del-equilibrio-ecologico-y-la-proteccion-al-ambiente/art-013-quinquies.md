@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE JUNIO DE 2023)
+Artículo 13 QUINQUIES.- La Secretaría será la encargada de brindar asesoramiento técnico y especializado para la implementación de los Sistemas de Manejo Ambiental de los Poderes Legislativo, Ejecutivo y Judicial, así como los Órganos Públicos Autónomos, los municipios y demás dependencias señaladas en el artículo 19 de la Ley Orgánica de la Administración Pública del Estado de Quintana Roo.

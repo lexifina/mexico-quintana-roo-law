@@ -1,0 +1,6 @@
+P.O. 16 DE JUNIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 068 POR EL QUE SE ADICIONAN: LA FRACCIÓN XXXIX BIS AL ARTÍCULO 4°, LA SECCIÓN I BIS DENOMINADA "DEL SISTEMA DE MANEJO AMBIENTAL" AL CAPÍTULO SEGUNDO DEL TÍTULO TERCERO Y LOS ARTÍCULOS 13 QUATER, 13 QUINQUIES, 13 SEXIES, 13 SEPTIES, 13 OCTIES Y 13 NONIES; TODOS DE LA LEY DEL EQUILIBRIO ECOLÓGICO Y LA PROTECCIÓN AL AMBIENTE DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrara en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO. La implementación de los Sistemas de Manejo Ambiental se llevará a cabo de manera paulatina y por etapas, de conformidad con los lineamientos que emita la Secretaría de Ecología y Medio Ambiente del Estado de Quintana Roo, los cuales deberán publicarse en el Periódico Oficial del Estado de Quintana Roo dentro del plazo de sesenta días naturales contados a partir de la entrada en vigor del presente Decreto.
+CUARTO. Las erogaciones que se llegaran a generar con motivo de la entrada en vigor del presente Decreto, se realizarán con cargo a la disponibilidad presupuestaria que se apruebe para tal fin a los ejecutores del gasto correspondiente en el ejercicio fiscal de que se trate.
