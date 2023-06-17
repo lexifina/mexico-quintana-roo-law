@@ -1,0 +1,4 @@
+P.O. 16 DE JUNIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 064 POR EL QUE SE ADICIONA EL ARTÍCULO 84 BIS Y SE DEROGA LA FRACCIÓN V DEL ARTÍCULO 90 DE LA LEY DE LOS TRABAJADORES AL SERVICIO DE LOS PODERES LEGISLATIVO, EJECUTIVO Y JUDICIAL, DE LOS AYUNTAMIENTOS Y LOS ORGANISMOS DESCENTRALIZADOS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas aquellas disposiciones que se opongan al presente Decreto.

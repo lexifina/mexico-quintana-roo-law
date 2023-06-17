@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 16 DE JUNIO DE 2023)
+ARTICULO 84 BIS. La elección de las directivas sindicales se hará mediante voto personal, libre, directo y secreto de las personas afiliadas, previa convocatoria que se emitirá con una anticipación no menor a quince días y que se difundirá entre todas las personas integrantes del sindicato.
+El sindicato deberá notificar la convocatoria al Tribunal Estatal de Conciliación y Arbitraje con la misma anticipación, el cual podrá verificar el procedimiento de elección, por conducto de las personas servidoras públicas o fedatarias que designe para tal efecto. Las elecciones que no cumplan estos requisitos serán nulas.
