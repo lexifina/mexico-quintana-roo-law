@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2023)
+Artículo 265 Bis. El proceso electoral es el conjunto de actos ordenados por la Constitución del Estado y esta Ley, realizados por las autoridades electorales, los partidos políticos, así como la ciudadanía, que tienen por objeto la renovación periódica de los integrantes de los poderes Ejecutivo y Legislativo; así como de los Ayuntamientos. En la elección e integración de los Ayuntamientos existirá la paridad de género tanto vertical como horizontal.
