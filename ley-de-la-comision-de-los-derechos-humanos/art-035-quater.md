@@ -12,9 +12,13 @@ IV. Acreditar experiencia en el control, manejo o fiscalización de recursos, re
 V. Contar al día de su designación con título y cedula profesional de licenciatura en derecho, contaduría, administración, economía o finanzas, expedidos con una antigüedad mínima de cinco años por autoridad o institución legalmente facultada para ello;
 (ADICIONADA, P.O. 19 DE JULIO DE 2017)
 VI. No pertenecer o haber pertenecido en los dos años anteriores a su designación, a despachos de consultoría o auditoría que hubieren prestado sus servicios a la Comisión, o haber fungido como consultor o auditor externo del mismo, en lo individual durante ese periodo;
-(REFORMADA, P.O. 14 DE SEPTIEMBRE DE 2021)
-VII. No haber recibido inhabilitación para desempeñar un empleo, cargo o comisión en el servicio público, y
+(REFORMADA, P.O. 13 DE JULIO DE 2023)
+VII. No haber recibido inhabilitación para desempeñar un empleo, cargo o comisión en el servicio público;
 (REFORMADA, P.O. 14 DE SEPTIEMBRE DE 2021)
 VIII. Durante los dos años anteriores a la designación no haber desempeñado cargo de elección popular federal, estatal o municipal, haber sido dirigente nacional, estatal o municipal o responsable del manejo de los recursos públicos de algún partido político, ni haber participado como candidato o candidata a cargo de elección popular alguno.
+(ADICIONADA, P.O. 13 DE JULIO DE 2023)
+IX. No tener sentencia firme por la comisión intencional de delitos contra la vida y la integridad corporal, feminicidio, la libertad y seguridad sexuales, el normal desarrollo psicosexual, violencia familiar o doméstica, violencia obstétrica, violación a la intimidad sexual, violencia vicaria o demás conductas antijuridicas semejantes o equiparables; por violencia política contra las mujeres en razón de género, en cualquiera de sus modalidades y tipos, y
+(ADICIONADA, P.O. 13 DE JULIO DE 2023)
+X. No ser declarada persona deudora alimentaria morosa.
 (REFORMADO, P.O. 14 DE SEPTIEMBRE DE 2021)
 La persona titular del Órgano Interno de control no podrá durante el ejercicio de su cargo, formar parte de ningún partido político, ni desempeñar otro empleo, cargo o comisión, salvo los no remunerados en las asociaciones científicas, docentes, artísticas o de beneficencia.
