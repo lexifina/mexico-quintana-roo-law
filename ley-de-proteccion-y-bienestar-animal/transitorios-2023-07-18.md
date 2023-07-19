@@ -1,0 +1,5 @@
+P.O. 18 DE JULIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 091 POR EL QUE SE REFORMA LA FRACCIÓN I DEL ARTÍCULO 4 DE LA LEY DE PROTECCIÓN Y BIENESTAR ANIMAL DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo, previa publicación en dicho órgano oficial del decreto por el que se adiciona un párrafo sexto y se recorren en su orden los subsecuentes al artículo 31 de la Constitución Política del Estado Libre y Soberano de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO. El Poder Ejecutivo, así como los Ayuntamientos del Estado contarán con un plazo de 180 días naturales contados a partir de la entrada en vigor del presente decreto, para que dentro del ámbito de sus respectivas facultades y competencias, realicen las adecuaciones necesarias a las disposiciones reglamentarias correspondientes, para apegarse a lo dispuesto en este Decreto.
