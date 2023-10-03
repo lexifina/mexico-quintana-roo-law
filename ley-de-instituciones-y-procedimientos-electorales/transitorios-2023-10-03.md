@@ -1,0 +1,5 @@
+P.O. 3 DE OCTUBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 104 POR EL QUE ADICIONAN LOS ARTÍCULOS 284 BIS, 284 TER, 284 QUÁTER, 284 QUINQUIES, 284 SEXIES, 284 SEPTIES Y 284 OCTIES A LA LEY DE INSTITUCIONES Y PROCEDIMIENTOS ELECTORALES PARA EL ESTADO DE QUINTANA ROO".]
+Primero. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+Segundo. Para los efectos del proceso electoral local ordinario 2024, atendiendo a que existe una nueva demarcación territorial de los distritos electorales uninominales locales en que se divide el Estado de Quintana Roo y sus respectivas cabeceras distritales y con la única finalidad de acceder a la reelección en la modalidad de diputación por mayoría relativa, sus aspirantes deberán cumplir con los requisitos plasmados en la Constitución Estatal, la presente ley y los lineamientos que, en su caso, emita el Instituto Estatal, salvo el extremo previsto en la fracción III del artículo 284 quinquies de la presente ley.
+Tercero. Se derogan todas las disposiciones que se opongan a lo dispuesto en el presente Decreto.

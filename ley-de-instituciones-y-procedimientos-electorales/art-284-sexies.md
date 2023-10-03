@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 3 DE OCTUBRE DE 2023)
+Artículo 284 Sexies. En caso de proceder el registro de candidaturas vía reelección, las diputadas y los diputados, en su calidad de candidatas o candidatos deberán observar lo siguiente:
+I. Podrán continuar desempeñando sus funciones y cargos durante todas las etapas del proceso electoral o bien, podrán separase (sic) del cargo, quedando en todos los casos esta facultad discrecional a cada candidatura.
+II. Deberá de notificar al Instituto con veinticuatro horas de antelación al inicio del periodo de campañas, si permanecerá desempeñando las funciones de su encargo o bien, si optó por la separación.
+III. En caso de optar por separase (sic) del cargo, deberá hacerse del conocimiento del Instituto, mediante oficio que remita a la Dirección correspondiente el mismo el (sic) partido que haya postulado la candidatura, a través de su representante ante el Consejo General del propio Instituto, en un término de veinticuatro horas contadas a partir de la presentación de la licencia correspondiente por parte del órgano competente para el efecto.
