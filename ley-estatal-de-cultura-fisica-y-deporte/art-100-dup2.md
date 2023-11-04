@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 3 DE NOVIEMBRE DE 2023)
+Artículo 100 Décies.- El Consejo Estatal de Personas Deportistas destacadas, estará integrado por dieciséis deportistas, que serán personas representantes de los municipios que conforman el Estado, los (sic) cuales se hayan destacado por su participación constante y activa en las diversas actividades afines al objeto de la CODEQ.
+Se nombrarán, observando el principio de paridad de género, por la persona Titular del Poder Ejecutivo, a propuesta de la Presidencia de la CODEQ y su nombramiento durará un año, pudiendo prorrogarse una sola vez, hasta por un año más.

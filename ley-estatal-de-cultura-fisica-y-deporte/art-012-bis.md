@@ -1,2 +1,3 @@
-(ADICIONADO, P.O. 3 DE JUNIO DE 2019)
-Artículo 12 Bis.- La actuación de la Administración Pública Estatal en el ámbito de la cultura física y del deporte, corresponde y será ejercida directamente, por un organismo descentralizado de la administración Pública Estatal del Estado de Quintana Roo, que sera el conductor de la Política Estatal en estas materias, quien contará con personalidad jurídica y patrimonio propio.
+(REFORMADO, P.O. 3 DE NOVIEMBRE DE 2023)
+Artículo 12 Bis.- La actuación de la Administración Pública Estatal, así como la conducción de la Política Pública en el ámbito de Cultura Física y del Deporte, corresponde a la Comisión del Deporte de Quintana Roo, que será un organismo descentralizado de la administración Pública Estatal, sectorizado a la Secretaría de Educación, con personalidad jurídica y patrimonio propio.
+La CODEQ tendrá su sede en la Capital del Estado y podrá contar con las unidades administrativas y de representación necesarias en toda la circunscripción del Estado, para el cumplimiento de su objeto, de conformidad con el presupuesto que le sea autorizado.

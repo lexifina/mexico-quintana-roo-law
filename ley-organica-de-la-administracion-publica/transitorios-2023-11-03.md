@@ -1,0 +1,5 @@
+P.O. 3 DE NOVIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 123 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DEL CÓDIGO PENAL PARA EL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO, DE LA LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE QUINTANA ROO, DE LA LEY DEL SERVICIO DE ADMINISTRACIÓN TRIBUTARIA DEL ESTADO DE QUINTANA ROO Y DEL CÓDIGO FISCAL DEL ESTADO DE QUINTANA ROO; EN MATERIA DE INVESTIGACIÓN Y PERSECUCIÓN DE DELITOS DE OPERACIONES CON RECURSOS DE PROCEDENCIA ILÍCITA (LAVADO DE ACTIVOS)".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Las asignaciones presupuestales que se requieran para la operación y puesta en marcha de la Unidad de Inteligencia Financiera del Servicio de Administración Tributaria del Estado de Quintana Roo, serán con cargo al presupuesto aprobado para el año 2023 y deberán hacerse las previsiones presupuestales para los ejercicios fiscales subsecuentes.
+TERCERO. Se derogan todas las disposiciones que resulten contrarias al presente Decreto.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE NOVIEMBRE DE 2023)
+Artículo 35 Sexies. La Fiscalía Especializada en combate a los delitos ambientales, la fauna y el desarrollo urbano, tendrá por objeto la investigación y persecución de los delitos establecidos en el Título Primero de la Sección Tercera del Libro Segundo del Código Penal, en materia de los delitos contra el ambiente y la fauna, así como los delitos establecidos en el Título Décimo Primero de la Sección Cuarta del Libro Segundo del Código Penal, en materia de los delitos contra el desarrollo urbano.

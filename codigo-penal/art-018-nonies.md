@@ -28,4 +28,7 @@ XXIII. Delitos contra la riqueza forestal del Estado, previsto por el artículo 
 XXIV. Cohecho, previsto por el artículo 255;
 (REFORMADA, P.O. 13 DE SEPTIEMBRE DE 2019)
 XXV. Delitos contra el desarrollo urbano, previsto por los artículos 268 y 269 Bis segundo párrafo;
-XXVI. En los demás casos expresamente previstos en la legislación aplicable.
+(REFORMADA [N. DE E. ADICIONADA], P.O. 3 DE NOVIEMBRE DE 2023)
+XXVI. Delitos de Operaciones con Recursos de Procedencia Ilícita.
+(ADICIONADA [N. DE E. REUBICADA], P.O. 3 DE NOVIEMBRE DE 2023)
+XXVII. En los demás casos expresamente previstos en la legislación aplicable.

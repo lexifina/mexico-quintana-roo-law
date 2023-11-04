@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE NOVIEMBRE DE 2023)
+Artículo 32 Ter. La Fiscalía Especializada en Combate a Delitos de Trata y Explotación de Niñas, Niños y Adolescentes, se encargará de la persecución e investigación de los hechos que la ley señale como delito en materia de trata de personas y su tentativa, previsto en la Ley General para Prevenir, Sancionar y Erradicar los delitos en Materia de Trata de Personas y para la Protección y Asistencia a las Víctimas de estos Delitos, cuando se cometan en perjuicio de Niñas, Niños y Adolescentes.

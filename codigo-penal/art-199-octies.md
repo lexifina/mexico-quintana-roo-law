@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 3 DE NOVIEMBRE DE 2023)
+ARTÍCULO 199-OCTIES.- Las penas previstas en este Título se aumentarán al doble, si la conducta es cometida por servidores públicos encargados de prevenir, detectar, denunciar, investigar o juzgar la comisión de delitos o ejecutar las sanciones penales, ya sea que se encuentren en activo o hasta dos años posteriores a la separación de tales cargos.
+Además de las penas señaladas en el párrafo anterior, se impondrá inhabilitación para desempeñar empleo, cargo o comisión hasta por un tiempo igual al de la pena de prisión impuesta. El periodo de inhabilitación comenzará a computarse a partir de que se haya cumplido la pena de prisión.
