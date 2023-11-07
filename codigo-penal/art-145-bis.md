@@ -16,3 +16,5 @@ VI.- En contra de una oficina bancaria, recaudadora u otra en que se conservan c
 VII.- En local comercial abierto al público;
 (ADICIONADA, P.O. 24 DE JULIO DE 2015)
 VIII.- En agravio de bienes que pertenezcan o estén destinados al servicio educativo, en escuelas o instituciones educativas de carácter público o privado que cuenten con reconocimiento de validez oficial, o en inmuebles destinados a prestar un servicio educativo.
+(ADICIONADA, P.O. 7 DE NOVIEMBRE DE 2023)
+IX.- Haciendo uso de objetos o réplicas de armas que por sus características físicas simulen la apariencia de ser armas auténticas o se perciban como tales, con la finalidad de someter, intimidar, amenazar o amagar, con causar daño al sujeto pasivo.
