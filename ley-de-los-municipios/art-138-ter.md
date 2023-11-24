@@ -6,4 +6,5 @@ III. Un sistema de mérito para la selección, promoción, ascenso y estabilidad
 IV. Un sistema de plan de salarios y tabulador de puestos;
 V. Un sistema de capacitación, actualización y desarrollo de personal; y
 VI. Las demás, que señale la Ley del Servicio Público de Carrera del Estado de Quintana Roo.
-El Servicio Público de Carrera Municipal, se implementará, en estricto apego a los derechos de los trabajadores.
+(REFORMADO, P.O. 23 DE NOVIEMBRE DE 2023)
+El Servicio Público de Carrera Municipal, se implementará, en estricto apego a los derechos de las personas trabajadoras.
