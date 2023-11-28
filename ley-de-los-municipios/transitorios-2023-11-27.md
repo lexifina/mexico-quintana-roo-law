@@ -1,0 +1,6 @@
+P.O. 27 DE NOVIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 119 POR EL QUE SE REFORMAN: EL PRIMER PÁRRAFO DE LA FRACCIÓN I DEL ARTÍCULO 54, LA FRACCIÓN X DEL ARTÍCULO 90, Y EL ARTÍCULO 200; Y SE ADICIONA: UN ÚLTIMO PÁRRAFO A LA FRACCIÓN XIV DEL ARTÍCULO 125, TODOS DE LA LEY DE LOS MUNICIPIOS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan a lo establecido en el presente Decreto.
+TERCERO. Dentro de los noventa días naturales siguientes a la entrada en vigor del presente Decreto, los Ayuntamientos del Estado, deberán realizar las adecuaciones que correspondan a su normatividad aplicable, a efecto de dar cumplimiento a su contenido.
+CUARTO. Las disposiciones establecidas en el presente Decreto deberán aplicarse de manera progresiva, sin afectar los derechos laborales adquiridos por las personas servidoras públicas que se encuentren en funciones, al momento de la entrada en vigor del presente Decreto, es decir, surtirán sus efectos, para las nuevas incorporaciones de personal que se realicen a la estructura orgánica del Ayuntamiento.
