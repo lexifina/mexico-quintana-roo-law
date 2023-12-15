@@ -1,0 +1,10 @@
+P.O. 15 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 177 POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE MOVILIDAD DEL ESTADO DE QUINTANA ROO; Y POR EL QUE SE REFORMA Y SE DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE DERECHOS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. El Instituto de Movilidad del Estado de Quintana Roo deberá compulsar y unificar la información, datos, archivos y registros que se encuentran en los archivos de movilidad ubicados en las diferentes delegaciones, para concentrar toda la información en el Registro Público del Transporte, para la (sic) cual contarán con un plazo de un año, contado a partir de la publicación de la presente reforma de Ley.
+TERCERO. Las licencias y permisos de conducir expedidos previo a la entrada en vigor del presente Decreto, mantendrán su vigencia por el tiempo en el que fueron otorgadas.
+CUARTO. A partir de la entrada en vigor del presente Decreto, el Instituto de Movilidad del Estado de Quintana Roo tendrá un plazo máximo de un año para otorgar las licencias y permisos de conducir en todas sus modalidades en el Estado de Quintana Roo.
+En caso de que el Instituto de Movilidad del Estado de Quintana Roo no cuente con los recursos materiales, humanos y financieros para poder otorgarlas, los Ayuntamientos continuarán expidiéndolas previo convenio de coordinación con el Instituto y de conformidad con lo dispuesto en el presente Decreto y el reglamento de la Ley.
+QUINTO. El Instituto de Movilidad del Estado de Quintana Roo, implementará acciones y realizará campañas de regularización a efecto de que la ciudadanía tramite el otorgamiento de su licencia o permiso de conducir.
+SEXTO. Dentro de un plazo de noventa días, posteriores a la entrada en vigor del presente Decreto, se deberán realizar las adecuaciones correspondientes al Reglamento de la Ley de Movilidad del Estado de Quintana Roo.
+SÉPTIMO. Se derogan todas las disposiciones que se opongan al presente Decreto.

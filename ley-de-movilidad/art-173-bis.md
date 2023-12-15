@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 15 DICIEMBRE DE 2023)
+Artículo 173 Bis. Para efectos del artículo anterior, el Instituto acreditará a las personas físicas o morales que pretendan dedicarse a impartir cursos y clases de manejo y a las direcciones de tránsito municipales que tengan la capacidad técnica y operativa de realizar los exámenes teóricos y prácticos de manejo.
+Una vez obtenida la acreditación correspondiente, podrán emitir una constancia a las personas solicitantes de la licencia o permiso de conducir a través de la cual podrán acreditar que cuentan con los conocimientos, habilidades y aptitudes necesarias para conducir un vehículo automotor.
+El Instituto deberá certificar los planes de estudios o currículo establecido para la aplicación de exámenes prácticos y teóricos que aplicarán las personas físicas o morales, así como las direcciones de tránsito municipales que cuenten con la acreditación respectiva.
+Asimismo, el Instituto acreditará a las instituciones públicas y/o personas físicas o morales que pretendan realizar los exámenes médicos, toxicológicos y de vista a los solicitantes de la licencia o permiso de conducir.
