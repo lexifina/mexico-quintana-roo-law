@@ -1,0 +1,4 @@
+P.O. 21 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 192 POR EL QUE SE REFORMA LA FRACCIÓN XL DEL ARTÍCULO 5º Y LA FRACCIÓN XXVII DEL ARTÍCULO 6º, Y SE ADICIONA LA FRACCIÓN XLI AL ARTÍCULO 5º Y LA FRACCIÓN XXVIII AL ARTÍCULO 6º, TODOS DE LA LEY DEL EQUILIBRIO ECOLÓGICO Y LA PROTECCIÓN AL AMBIENTE DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan las disposiciones que se opongan al presente Decreto.
