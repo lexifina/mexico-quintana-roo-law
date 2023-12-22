@@ -1,0 +1,4 @@
+P.O. 21 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 191 POR EL QUE SE REFORMAN: LA FRACCIÓN VI DEL ARTÍCULO 16; LA FRACCIÓN III DEL ARTÍCULO 70; LA FRACCIÓN XIV DEL ARTÍCULO 105; EL PÁRRAFO SEXTO DEL ARTÍCULO 129; LA FRACCIÓN XXIII DEL ARTÍCULO 157; Y SE ADICIONA: LA FRACCIÓN XIX AL ARTÍCULO 105, TODOS DE LA LEY DE EDUCACIÓN DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas aquellas disposiciones que se opongan al presente Decreto.

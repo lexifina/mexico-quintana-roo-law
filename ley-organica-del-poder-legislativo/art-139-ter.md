@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 21 DE DICIEMBRE DE 2023)
+Artículo 139 Ter. El Órgano para la Igualdad de Género, Prevención y Atención de la Violencia contra las Mujeres del Poder Legislativo, estará adscrito al Pleno de la Legislatura, sin que ello se traduzca en subordinación alguna, contará con una persona Titular que lo representará y con la estructura administrativa necesaria y el presupuesto suficiente para el cumplimiento de sus funciones.
+Será el órgano rector de la política en materia de igualdad de género, que fomente entre el personal relaciones laborales equitativas, igualitarias y respetuosas, a fin de transformar al Poder Legislativo en sus estructuras y cultura institucional.

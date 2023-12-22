@@ -1,0 +1,4 @@
+P.O. 21 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 178 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE PROTECCIÓN Y FOMENTO APÍCOLA DEL ESTADO DE QUINTANA ROO; Y SE DECLARA EL DÍA 20 DE MAYO DE CADA AÑO COMO "DÍA ESTATAL DE LA ABEJA MELIPONA O ABEJA SAGRADA MAYA".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. A partir de la entrada en vigor del presente Decreto, y por única ocasión, la H. XVII Legislatura del Estado, conjuntamente con la Secretaría de Desarrollo Económico y la Secretaría de Desarrollo Agropecuario, Rural y Pesca, organizaran una feria y exposición apícola con la participación de los productos de las y los apicultores y meliponicultores, y deberán hacer entrega del decreto que en su caso se expida.
