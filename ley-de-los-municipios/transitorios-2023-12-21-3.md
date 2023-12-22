@@ -1,0 +1,5 @@
+P.O. 21 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 186 POR EL QUE SE REFORMAN: EL SEGUNDO PÁRRAFO DEL ARTÍCULO 30, EL PRIMER PÁRRAFO DE LA FRACCIÓN I DEL ARTÍCULO 54, EL ARTÍCULO 56, EL INCISO H) DE LA FRACCIÓN I DEL ARTÍCULO 66, LA FRACCIÓN IX DEL ARTÍCULO 90, EL SEGUNDO PÁRRAFO DE LA FRACCIÓN VII Y LA FRACCIÓN VIII DEL ARTÍCULO 93, LA FRACCIÓN III DEL ARTÍCULO 116, LA DENOMINACIÓN DEL CAPÍTULO IV DEL TÍTULO NOVENO, EL ARTÍCULO 127, EL ARTÍCULO 128, EL ARTÍCULO 129, EL ARTÍCULO 130 Y EL ARTÍCULO 173; SE ADICIONA: EL ARTÍCULO 130 BIS, TODOS DE LA LEY DE LOS MUNICIPIOS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan a lo establecido en el presente Decreto.
+TERCERO. En un plazo no mayor a sesenta días naturales siguientes a la entrada en vigor del presente Decreto, los Ayuntamientos realizarán las adecuaciones o adiciones reglamentarias que correspondan, a efecto de dar cumplimiento a lo establecido en el presente Decreto.
