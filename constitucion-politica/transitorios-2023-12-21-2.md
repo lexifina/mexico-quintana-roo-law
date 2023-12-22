@@ -1,0 +1,4 @@
+P.O. 21 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DE LA "DECLARATORIA NÚMERO: 005 POR LA QUE SE REFORMAN LA FRACCIÓN II, SU INCISO A) Y SUS NUMERALES 1, 2 Y 3; Y SE ADICIONAN EL SEGUNDO PÁRRAFO AL NUMERAL 2 Y EL SEGUNDO PÁRRAFO AL NUMERAL 3 AMBOS DE LA FRACCIÓN II, TODOS DEL ARTÍCULO 161 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
