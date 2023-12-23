@@ -1,8 +1,2 @@
-(ADICIONADO, P.O. 3 DE NOVIEMBRE DE 2023)
-Artículo 36 Bis. Para el ejercicio de sus atribuciones, la Fiscalía Especializada en Asuntos Internos tendrá bajo su cargo a la Dirección de Supervisión, Evaluación y Control de Actuación de Personas Servidoras Públicas de la Fiscalía General.
-(REFORMADA SU DENOMINACIÓN, P.O. 3 DE NOVIEMBRE DE 2023)
-Capítulo Quinto
-De los Órganos Operativos Auxiliares
-(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
-Sección I
-De la Dirección General de la Policía de Investigación
+(REFORMADO, P.O. 22 DE DICIEMBRE DE 2023)
+Artículo 36 Bis. La Fiscalía Especializada en Asuntos Internos contará con las personas Fiscales del Ministerio Público, necesarias para el Ejercicio de sus atribuciones, quienes estarán bajo su mando y serán las encargadas de la investigación de delitos de su competencia; así mismo tendrá a su cargo la Dirección de Supervisión, Evaluación y Control de Actuación de Personas Servidoras Públicas de la Fiscalía General.

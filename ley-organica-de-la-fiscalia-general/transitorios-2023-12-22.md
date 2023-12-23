@@ -1,0 +1,7 @@
+P.O. 22 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 198 POR EL QUE SE REFORMAN, DEROGAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY ORGÁNICA DE LA FISCALÍA GENERAL DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Para la adecuación del Reglamento de la Ley Orgánica de la Fiscalía General del Estado de Quintana Roo, continuará siendo aplicable el plazo dispuesto por el transitorio TERCERO del Decreto 122, publicado en el Periódico Oficial del Estado el 03 de noviembre de 2023.
+TERCERO. La persona titular de la Fiscalía General del Estado dictará los acuerdos y disposiciones de carácter general que estime necesarios para la transferencia de los recursos humanos, financieros y materiales, y la debida ejecución de lo dispuesto en el presente decreto. Para ello la persona titular de la Fiscalía General del Estado, a través de las unidades administrativas que correspondan, contará con un plazo de noventa días hábiles a partir de la entrada en vigor del presente decreto, para llevar a cabo el proceso de transferencia de recursos humanos, materiales y financieros necesarios conforme a lo previsto en el presente decreto.
+CUARTO. Las erogaciones que se generen con motivo de la entrada en vigor de este decreto se cubrirán de manera progresiva y de acuerdo a la disponibilidad presupuestal del Estado.
+QUINTO. Se derogan todas las disposiciones legales que se opongan a lo dispuesto en el presente Decreto.

@@ -1,18 +1,38 @@
-(ADICIONADO, P.O. 3 DE NOVIEMBRE DE 2023)
-Artículo 34 Quinquies. La Fiscalía Especializada en Combate a los Delitos Cometidos por Servidores Públicos y de Tortura, estará encargada de la investigación de los delitos que cometan las personas servidoras públicas de la Fiscalía General en el desempeño de su empleo, cargo o comisión, con excepción de aquellos que sean competencia de la Fiscalía Especializada en Combate a la Corrupción, y tendrá las siguientes atribuciones:
+(REFORMADO PRIMER PÁRRAFO, P.O. 22 DE DICIEMBRE DE 2023)
+Artículo 34 Quinquies. La Fiscalía Especializada en Combate a los Delitos Cometidos por Servidores Públicos y de Tortura, estará encargada de la investigación de los delitos que cometan las personas servidoras públicas que pertenezcan a los poderes Ejecutivo, Legislativo y Judicial del Estado de Quintana Roo, sus organismos descentralizados o desconcentrados así como los Órganos Públicos Autónomos, en el desempeño de su empleo, cargo o comisión, con excepción de aquellos que sean competencia de la Fiscalía Especializada en Combate a la Corrupción, y la Fiscalía Especializada de Asuntos Internos.
+(ADICIONADO [N. DE E. ESTE PÁRRAFO], P.O. 22 DE DICIEMBRE DE 2023)
+Así mismo estará encargada de la investigación de los delitos previstos en la Ley General para Prevenir, Investigar y Sancionar la Tortura y otros Tratos o Penas Crueles, Inhumanos o Degradantes, y tendrá las siguientes atribuciones:
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 I. Integrar debidamente las carpetas de investigación en las que se encuentren involucrados en calidad de indiciados o imputados personas servidoras públicas adscritas a la Fiscalía General, con motivo de delitos cometidos en el ejercicio de sus funciones, determinando lo conducente; así como la investigación de hechos delictivos relacionados con los delitos previstos en la Ley General para Prevenir, Investigar y Sancionar la Tortura y otros Tratos o Penas Crueles, Inhumanos o Degradantes;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 II. Investigar los delitos de su competencia, con la Policía de Investigación, que estará bajo su conducción y mando, los Servicios Periciales y las demás autoridades competentes, en los términos de las disposiciones legales aplicables;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 III. Practicar las diligencias necesarias para la integración de las carpetas de investigación y para allegarse de los datos de prueba que considere pertinentes para el esclarecimiento de los hechos;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 IV. Tratar con respeto y dignidad a todas las personas que comparezcan, quedando estrictamente prohibido cualquier acto discriminatorio, en razón de estado civil, procedencia étnica, idioma, ideología, color de piel, nacionalidad, origen o posición social, trabajo o profesión, posición económica, características físicas, discapacidad o estado de salud, género, sexo, edad, condición social o económica, religión, orientación sexual, raza y cualquier otro que atente contra la dignidad humana y que anule o menoscabe los derechos y libertades de las personas, debiendo llevar a cabo su actuación de acuerdo con los principios de legalidad, certeza, honradez, lealtad, objetividad, imparcialidad, profesionalismo, transparencia, eficacia y eficiencia, que rigen en el Servicio Profesional, así como a tratarlas con calidad y calidez, y con el debido respeto a los derechos humanos;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 V. Ejercer las facultades que, en materia de aseguramiento de bienes, se deriven del Código Nacional;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 VI. Remitir a la Dirección General de Bienes Asegurados y Extinción de Dominio, los expedientes necesarios para solicitar la extinción de dominio de los bienes de las personas imputadas o sentenciadas, así como de aquellos respecto de los cuales se conduzcan como personas propietarias, o propietarias beneficiarias o beneficiaria controladora, cuyo valor equivalga a los bienes desaparecidos o no localizados por causa atribuible a la persona imputada o sentenciada, cuando estos bienes estén vinculados con hechos que la ley considera como delitos de su competencia que sean susceptibles de la acción de extinción de dominio, en los términos de la legislación aplicable;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 VII. Dictar las medidas precautorias y promover los mecanismos necesarios para la reparación del daño;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 VIII. Autorizar la consulta de reserva, incompetencia, acumulación; y separación de las investigaciones, acumulación, archivo temporal, criterio de oportunidad, acuerdo reparatorio y procedimiento abreviado que propongan las personas Fiscales del Ministerio Público de su adscripción;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 IX. Ejecutar, supervisar y evaluar el Protocolo Homologado, así como los protocolos de actuación y para la investigación del delito de Tortura;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 X. Requerir a las instancias del sector público competentes y del sector privado en los casos que disponga la Ley General de Víctimas y la Ley de Víctimas del Estado de Quintana Roo, a que se le brinde atención médica, psicológica y jurídica a las personas víctimas de las conductas previstas en la ley de la materia;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 XI. Decretar las medidas de protección en favor de la vida o la integridad de las personas víctimas, de conformidad con la legislación aplicable;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 XII. Llevar a cabo análisis de contextos y patrones sobre la comisión del delito de tortura, con base en los datos del Registro Nacional y otra información disponible;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 XIII. Pedir a las autoridades competentes su colaboración y apoyo para la investigación y persecución del delito de tortura;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 XIV. Proponer políticas para la prevención de las conductas previstas en la Ley General para Prevenir, Investigar y Sancionar la Tortura y Otros Tratos o Penas Crueles, Inhumanos o Degradantes;
+(ADICIONADA, P.O. 3 DE NOVIEMBRE DE 2023)
 XV. Abstenerse de conocer y resolver respecto de asuntos que sean competencias de otras Fiscalías Especializadas o Fiscalías de Distrito, salvo autorización expresa de la persona titular de la Fiscalía General, y
-XVI. Las demás que le confieran las disposiciones legales aplicables, el Reglamento de esta Ley y las que le encomiende la persona titular de la Fiscalía General.
+(REFORMADA [N. DE E. ADICIONADA], P.O. 22 DE DICIEMBRE DE 2023)
+XVI. Dar vista al Órgano Interno de Control, a la Fiscalía Especializada en Asuntos Internos, Fiscalía Especializada en Combate a la Corrupción, Comité de Profesionalización, Consejo de Honor y Justicia, cuando se detecten conductas posiblemente constitutivas de responsabilidades administrativas de los servidores públicos de la Fiscalía General, y
+(ADICIONADA [N. DE E. REUBICADA], P.O. 22 DE DICIEMBRE DE 2023)
+XVII. Las demás que le confieran las disposiciones legales aplicables, el Reglamento de esta Ley y las que le encomiende la persona titular de la Fiscalía General.
