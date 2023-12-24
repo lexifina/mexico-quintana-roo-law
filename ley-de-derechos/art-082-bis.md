@@ -1,9 +1,10 @@
 (ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 21 DE DICIEMBRE DE 2020)
 APARTADO E
 ACADEMIA ESTATAL DE SEGURIDAD PÚBLICA
-(ADICIONADO, P.O. 21 DE DICIEMBRE DE 2020)
-Artículo 82-Bis. Por los servicios de capacitación, adiestramiento y certificación, dirigida a los cuerpos de seguridad pública estatal y municipal, personal de custodia, policía ministerial, peritos, guías técnicos, personal de ayudantía y personal de seguridad privada, que presta la Secretaría de Seguridad Pública a través de la Academia Estatal de Seguridad Pública, se causarán derechos conforme a la tarifa siguiente:
+(REFORMADO PRIMER PÁRRAFO, P.O. 21 DE DICIEMBRE DE 2023)
+Artículo 82-Bis. Por los servicios de capacitación, adiestramiento y certificación, dirigida a los cuerpos de seguridad ciudadana estatal y municipal, personal de custodia, policía ministerial, peritos, guías técnicos, personal de ayudantía y personal de seguridad privada, que presta la Secretaría de Seguridad Ciudadana a través de la Academia Estatal de Seguridad Pública, se causarán derechos conforme a la tarifa siguiente:
 CONCEPTOUMA
+(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
 I. Programas de Formación InicialCosto por elemento
 1) Formación Inicial para Policía Preventivo
 de Nuevo Ingreso.483.4
@@ -14,6 +15,7 @@ Investigación.345.3
 4) Formación Inicial para Ministerios Públicos.345.3
 5) Formación Inicial para Perito.345.3
 6) Formación Inicial para Custodios.368.2
+(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
 II. Programas de Formación Continua.Costo por elemento
 1) Competencias Básicas de la Función Policial.42.3
 2) Actualización de Estrategia Policial.76.7

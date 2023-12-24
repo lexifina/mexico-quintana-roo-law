@@ -1,0 +1,4 @@
+[N. DE E. VÉASE FÓRMULA EN EL P.O. DE 23 DE DICIEMBRE DE 2022, PÁGINAS DE LA 115 A LA 116.]
+(ADICIONADO, P.O. 21 DE DICIEMBRE DE 2023)
+Artículo 23-Ter. Los Municipios que se adhieran al Sistema Estatal de Coordinación Fiscal mediante el convenio respectivo, participarán de los ingresos estatales por concepto de contribuciones en los términos y condiciones que para tal efecto se establezcan en los convenios de coordinación y colaboración administrativa que celebren. Dichos convenios se publicarán en el Periódico Oficial del Estado y surtirán sus efectos a partir de las fechas que en el propio convenio se establezcan o, a partir del día siguiente de la publicación.
+El Estado o el Municipio podrán dar por terminado total o parcialmente los convenios a que se refiere el párrafo anterior, terminación que será publicada y tendrá efectos conforme al párrafo anterior.
