@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 5 DE MARZO DE 2024)
+Artículo 39 Octies.- Las Zonas Prioritarias de Gestión Turística Sustentable deberán contar con un Organismo Gestor del Destino quien determinará los mecanismos para coadyuvar con la conservación, mejoramiento, protección, promoción y aprovechamiento sustentable de los recursos naturales y culturales a través de la actividad turística, con las autoridades competentes.
+Esta figura estará conformada por representantes del sector público, a nivel estatal y municipal, sector privado, académico, social y ambiental, de conformidad con la Convocatoria emitida por la Secretaría y publicada en el Periódico Oficial del Estado de Quintana Roo.

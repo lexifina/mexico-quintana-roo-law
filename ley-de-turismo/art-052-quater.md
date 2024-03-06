@@ -1,3 +1,4 @@
-(ADICIONADO, P.O. 19 DE OCTUBRE DE 2021)
-Artículo 52 Quáter. La inscripción a la Plataforma Estatal será gratuita y obligatoria para las personas físicas o morales que presten servicios turísticos, para lo cual deberán cumplir con los requisitos que determine el Reglamento.
-La Secretaría en términos de lo que se disponga en el reglamento fijará los lineamientos a cumplir por las personas físicas y morales que presten los servicios referidos en el párrafo que antecede y que estén obligados a registrarse en la citada Plataforma.
+(REFORMADO, P.O. 5 DE MARZO DE 2024)
+Artículo 52 Quater.- La inscripción al Registro Estatal de Turismo será anual, gratuita y obligatoria para los prestadores de servicios turísticos, y se realizará a través de los medios que determine la Secretaría en la Convocatoria correspondiente, la cual se publicará durante el mes de enero de cada año, en el Periódico Oficial del Estado de Quintana Roo.
+Los prestadores de servicios turísticos y las plataformas digitales que ofrezcan, administren, proporcionen o contraten con el turista, productos y/o servicios turísticos en el territorio estatal, deberán contar con su constancia de inscripción al Registro Estatal de Turismo para poder ofrecer sus productos o servicios turísticos.
+La Convocatoria deberá desarrollarse en términos de lo que se disponga en la presente Ley y su Reglamento, y fijará las bases a cumplir por los prestadores de servicios turísticos que estén obligados a registrarse según su clasificación.

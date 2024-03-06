@@ -5,4 +5,5 @@ CAPÍTULO III
 DEL SISTEMA DE INFORMACIÓN TURÍSTICA
 (ADICIONADO, P.O. 19 DE OCTUBRE DE 2021)
 Artículo. 52 Undecies. La Secretaría creará, organizara? y operara? el Sistema Estatal de Información Turística del Estado, que permita conocer los recursos, características y participantes de la actividad turística.
-El Sistema Estatal se alimentará de la información contenida en el Atlas Turístico de Quintana Roo, en la Plataforma Estatal y toda aquella información que se les solicite y compartan los prestadores de servicios turísticos, dependencias, entidades y actores vinculados al sector turístico, con el objeto de contar con los elementos informativos necesarios para la planeación y promoción del Turismo.
+(REFORMADO, P.O. 5 DE MARZO DE 2024)
+El Sistema Estatal se alimentará de la información contenida en el Atlas Turístico de Quintana Roo, en el Registro Estatal de Turismo y toda aquella información que se les solicite y compartan los prestadores de servicios turísticos, dependencias, entidades y actores vinculados al sector turístico, con el objeto de contar con los elementos informativos necesarios para la planeación y promoción del Turismo.

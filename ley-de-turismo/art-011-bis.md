@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2014)
-Artículo 11 Bis.- Los integrantes de la Comisión, deberán acudir a cada sesión que se convoque, la falta a tres sesiones, será motivo suficiente para su remoción de dicha responsabilidad.
+(REFORMADO, P.O. 5 DE MARZO DE 2024)
+Artículo 11 Bis.- La Comisión se regirá por las disposiciones contenidas en esta Ley y en los Lineamientos para la operación y funcionamiento de la misma, expedidos por consenso de sus integrantes y publicada en el Periódico Oficial del Estado.

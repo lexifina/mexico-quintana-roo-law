@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 5 DE MARZO DE 2024)
+Artículo 39 Duodecies.- Cada una de las Zonas Rurales Comunitarias con Potencial Turístico deberán contar con un Organismo Gestor del Destino, que determinará los mecanismos para coadyuvar, con las autoridades en la materia, en la conservación, mejoramiento, protección, promoción y aprovechamiento sustentable de los recursos naturales y culturales a través de la actividad turística.
+Esta figura estará conformada por representantes del sector público, a nivel estatal y municipal, sector privado, académico, social y ambiental, de conformidad con la Convocatoria emitida por la Secretaría publicada en el Periódico Oficial del Estado de Quintana Roo.

@@ -1,3 +1,3 @@
-(ADICIONADO, P.O. 19 DE OCTUBRE DE 2021)
-Artículo 52 Ter. La Secretaría operará y actualizará la Plataforma Estatal, en coordinación con los Ayuntamientos, conforme a las disposiciones reglamentarias que para tal efecto se establezcan.
-La Secretaría regulará y coordinará la operación de la Plataforma Estatal.
+(REFORMADO, P.O. 5 DE MARZO DE 2024)
+Artículo 52 Ter.- La Secretaría será la autoridad encargada de regular, coordinar, operar y actualizar el Registro Estatal de Turismo, así como promover la inscripción de los prestadores de servicios turísticos al mismo.
+A través de convenios de colaboración, los Ayuntamientos podrán coadyuvar con la Secretaría para el fortalecimiento del Registro Estatal de Turismo mediante la difusión con los prestadores de servicios turísticos y la promoción del Registro Estatal de Turismo.

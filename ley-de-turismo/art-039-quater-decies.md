@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE MARZO DE 2024)
+Artículo 39 Quater decies.- El Ejecutivo del Estado, los Ayuntamientos y el Organismo Gestor del Destino, en el ámbito de sus respectivas competencias, podrán intervenir para impulsar y regular la actividad turística en la Zona Rural Comunitaria con Potencial Turístico, fomentando la inversión, el empleo, el ordenamiento territorial y la conservación de los recursos naturales a favor de la población local.

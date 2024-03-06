@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 19 DE OCTUBRE DE 2021)
-Articulo 16 Sexies. La Secretaría en coordinación con otras dependencias y entidades de la administración pública estatal y municipal, impulsará acciones con los sectores social y privado para el fomento del turismo rural comunitario, a fin de promover la generación de ingresos adicionales a la economía rural, así como la conservación de los ambientes en los que habitan; asimismo, promoverá entre sus trabajadores el turismo rural y comunitario.
+(REFORMADO, P.O. 5 DE MARZO DE 2024)
+Artículo 16 Sexies.- La Secretaría, en coordinación con otras dependencias y entidades de la administración pública estatal, conformarán el Comité de Evaluación para la Dictaminación de las Zonas Rurales Comunitarias con Potencial Turístico, que analizará el proyecto de Decreto y emitirá su respectivo dictamen, de conformidad con lo establecido por el Reglamento.

@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 19 DE OCTUBRE DE 2021)
-Artículo 52 Duodecies. Los datos y estadísticas captados por medio del Sistema Estatal deberán actualizarse y publicarse cada seis meses en la forma y a través de los medios que la Secretaría estime necesarios, a fin de proporcionar a los prestadores de servicios turísticos y demás dependencias y entidades de la administración pública, información confiable para fortalecer los procesos de planeación de los sectores público y privado.
+(REFORMADO, P.O. 5 DE MARZO DE 2024)
+Artículo 52 Duodecies.- Los datos y estadísticas captados por medio del Sistema Estatal deberán actualizarse y publicarse, cuando menos, cada seis meses en la forma y a través de los medios que la Secretaría estime necesarios, a fin de proporcionar a los prestadores de servicios turísticos y demás dependencias y entidades de la administración pública, información confiable para fortalecer los procesos de planeación de los sectores público y privado.

@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 5 DE MARZO DE 2024)
+Artículo 16 Septies.- La Secretaría en coordinación con otras dependencias y entidades de la administración pública estatal y municipal, impulsarán acciones para el fomento del turismo rural y comunitario, con los sectores social, académico, ambiental y privado para la promoción y comercialización de los productos, así como la conservación de los recursos bioculturales, de las zonas turísticas rurales comunitarias.

@@ -1,0 +1,9 @@
+P.O. 5 DE MARZO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 204 POR EL QUE SE REFORMAN, DEROGAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE QUINTANA ROO Y DE LA LEY DE TURISMO DEL ESTADO DE QUINTANA ROO".]
+Primero. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+Segundo. Las adecuaciones conducentes al Reglamento de esta Ley y Reglamento Interior de la Secretaría de Turismo, que se desprendan del contenido del presente Decreto, deberán ser emitidas en un plazo de ciento ochenta días naturales, contados a partir de la entrada en vigor de este Decreto.
+Tercero. La Mesa de Seguridad Turística deberá instalarse en su primera sesión ordinaria, en un plazo no mayor a ciento ochenta días naturales, contados a partir de la entrada en vigor del presente Decreto.
+En un plazo no mayor a 90 días naturales posteriores a la instalación de la Mesa de Seguridad Turística, se deberán emitir los lineamientos y demás disposiciones jurídicas aplicables para su operación y funcionamiento.
+Cuarto. La Comisión Ejecutiva de Turismo emitirá en un plazo no mayor a 90 días naturales posteriores a la entrada en vigor del presente Decreto, los lineamientos y demás disposiciones jurídicas aplicables para su funcionamiento.
+Quinto. Para el cumplimiento de lo previsto en la fracción XXX del artículo 6, la Secretaría dentro de un plazo de 180 días naturales, contados a partir del inicio de la vigencia de presente decreto, deberá realizar las gestiones jurídicas y administrativas necesarias para constituir el Fondo de Apoyo para los Turistas, Visitantes y Prestadores de Servicios Turísticos en Situación de Emergencia, Desastres y Contingencias.
+Sexto. Se derogan todas las disposiciones que se opongan al contenido del presente Decreto.
