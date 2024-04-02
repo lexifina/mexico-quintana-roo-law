@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE ABRIL DE 2024)
+ARTÍCULO 53 -BIS.- En el caso de contratos de obra pública a precio alzado con pagos a plazos preestablecidos, el ajuste de costos se podrá generar únicamente como resultado de variaciones de los costos derivados del financiamiento que la persona contratista celebre una vez formalizado el contrato, resultado de la variación en las condiciones de los mercados financieros.
