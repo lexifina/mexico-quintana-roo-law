@@ -21,3 +21,5 @@ Además de la sanción anterior, el sujeto activo perderá todos los derechos co
 En caso de que no se acredite el feminicidio, se aplicarán las reglas del homicidio.
 (REFORMADO, P.O. 4 DE JULIO DE 2017)
 En la configuración del delito, no es necesario que se acredite la personalidad misógina del inculpado.
+(ADICIONADO, P.O. 10 DE ABRIL DE 2024)
+La tentativa punible relacionada con el delito de feminicidio contemplado en este artículo se sancionará con pena de prisión de entre la mitad de la mínima y las dos terceras partes de la máxima de las sanciones previstas para este delito consumado.
