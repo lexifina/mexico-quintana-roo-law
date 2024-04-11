@@ -4,8 +4,8 @@ ARTICULO 145-BIS.- Se impondrá de seis a dieciocho años de prisión y de trein
 I.- Con violencia contra la persona robada o sobre otra que la acompañe, o cuando ejerza violencia para darse a la fuga o defender lo robado;
 (ADICIONADO, P.O. 5 DE DICIEMBRE DE 2012)
 II.- En lugar cerrado o habitado o destinado para habitación, o sus dependencias, comprendiendo no solo los que están fijos en la tierra, sino también en los movibles:
-(REFORMADA, P.O. 18 DE JUNIO DE 2021)
-III.- Aprovechando la consternación de una desgracia, o aprovechando situaciones de emergencia, catástrofe natural, contingencia sanitaria, epidemia, invasión, desorden público o cualquier evento extraordinario que perturbe la paz pública;
+(REFORMADA, P.O. 10 DE ABRIL DE 2024)
+III. Aprovechando la consternación de una desgracia, o situaciones de emergencia, catástrofe natural, contingencia sanitaria, epidemia, invasión, incendio, desorden público o cualquier evento extraordinario que perturbe la paz pública;
 (ADICIONADO, P.O. 5 DE DICIEMBRE DE 2012)
 IV.- Por intervención de dos o más personas;
 (ADICIONADO, P.O. 5 DE DICIEMBRE DE 2012)
