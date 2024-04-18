@@ -21,3 +21,4 @@ LIC. RENÁN EDUARDO SÁNCHEZ TAJONAR.
 DIPUTADA SECRETARIA:
 PROFA. MILDRED CONCEPCIÓN ÁVILA VERA.
 En cumplimiento a lo dispuesto por la fracción II del Artículo 91 de la Constitución Política del Estado Libre y Soberano de Quintana Roo, y para su debida publicación y observancia, promulgo el presente Decreto número 205 en la Residencia Oficial del Poder Ejecutivo del Estado, en la Ciudad de Chetumal, Quintana Roo, a 22 de febrero de 2024.- Lic. María Elena H. Lezama Espinosa, Gobernadora del Estado. Rúbrica.- Conforme a los artículos 93 de la Constitución Política del Estado Libre y Soberano de Quintana Roo, y 11 de la Ley Orgánica de la Administración Pública del Estado de Quintana Roo, refrendado por la Secretaria de Gobierno, Lic. María Cristina Torres Gómez.- Rúbrica.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
