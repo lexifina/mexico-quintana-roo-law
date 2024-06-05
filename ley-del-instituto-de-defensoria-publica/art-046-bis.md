@@ -1,7 +1,7 @@
-(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 16 DE JUNIO DE 2022)
+(ADICIONADA [N. DE E. REPUBLICADA CON LOS ARTÍCULOS QUE LA INTEGRAN], P.O. 4 DE JUNIO DE 2024)
 SECCIÓN IV
 DE LA UNIDAD DE ATENCIÓN A PERSONAS INDÍGENAS
-(NOTA: EL 6 DE JUNIO DE 2023, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS CONSIDERANDOS QUINTO Y SEXTO, ASÍ COMO EN LOS RESOLUTIVOS CUARTO Y QUINTO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 105/2022, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIRÁ SUS EFECTOS A LOS DOCE MESES SIGUIENTES A LA NOTIFICACIÓN DE ESTOS PUNTOS RESOLUTIVOS AL CONGRESO DEL ESTADO DE QUINTANA ROO, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA https://www.scjn.gob.mx/).
-(ADICIONADO, P.O. 16 DE JUNIO DE 2022)
+(ADICIONADO [N. DE E. REPUBLICADO PRIMER PÁRRAFO], P.O. 4 DE JUNIO DE 2024)
 Artículo 46 Bis.- La Unidad de Atención a Personas Indígenas, estará a cargo de una persona que ejerza la titularidad, quien llevará a cargo las acciones de coordinación en la atención y defensa de personas pertenecientes a alguna comunidad indígena que requiera los servicios de defensa o asistencia jurídica, conforme lo establece la presente ley.
-La Unidad de Atención a Personas Indígenas garantizará que en todo juicio o procedimiento se cumpla con la asistencia de un intérprete o traductor lingüístico, tomando en cuenta los usos y costumbres de la cultura a la que pertenezca la persona indígena para proporcionar una defensa técnica y de calidad, de conformidad con lo que establece la Constitución Federal, los tratados internacionales de los que el estado mexicano forme parte y la demás legislación sustantiva y procedimental.
+(REFORMADO, P.O. 4 DE JUNIO DE 2024)
+La Unidad de Atención a Personas Indígenas garantizará que en todo juicio o procedimiento se cumpla con la asistencia de un intérprete o traductor lingüístico, tomando en cuenta los usos y costumbres de la cultura a la que pertenezca la persona indígena para proporcionar una defensa técnica y de calidad, de conformidad con lo que establece la Constitución Federal, los tratados internacionales de los que el estado mexicano forme parte y las demás legislación sustantiva y procedimental.
