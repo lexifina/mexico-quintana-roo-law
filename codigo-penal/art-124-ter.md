@@ -18,3 +18,5 @@ X. Cuando se logre que la víctima o un tercero realice la conducta exigida, o e
 XI. Cuando el sujeto activo obtenga o manifieste su pretensión de obtener en forma continua o permanente, dinero o bienes por concepto de cobro de cuotas de cualquier índole;
 XII. Cuando el sujeto activo utilice armas o cualquier otro medio que aparente o sea peligroso, y
 XIII. La conducta se realice por cualquier medio documental, electrónico, telefónico, amenaza directa o intimidación hacia la persona, familia o bienes del sujeto pasivo, o se le requiera el pago de una deuda simulada o solicite de otro la suscripción o destrucción de documentos que contengan obligaciones o créditos.
+(ADICIONADO, P.O. 5 DE JUNIO DE 2024)
+El delito previsto por este artículo en todo caso será perseguido de oficio.
