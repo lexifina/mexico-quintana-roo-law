@@ -1,0 +1,5 @@
+P.O. 10 DE JULIO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 254 POR EL QUE SE ADICIONAN UN PÁRRAFO SEGUNDO AL ARTÍCULO 52, UN PÁRRAFO SEGUNDO Y LOS INCISOS A), B) Y C) A LA FRACCIÓN I DEL ARTÍCULO 89, UN CAPÍTULO DÉCIMO DENOMINADO "DE LA COORDINACIÓN CON EL REGISTRO NACIONAL DE OBLIGACIONES ALIMENTARIAS" AL TÍTULO CUARTO QUE COMPRENDE LOS ARTÍCULOS 118 BIS Y 118 TER, TODOS DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. En lo relativo a la presentación del Certificado de No Inscripción al Registro Nacional de Obligaciones Alimentarias, se contará con un plazo no mayor a ciento veinte días hábiles a partir de la creación del Registro Nacional de Obligaciones Alimentarias, para armonizar el marco normativo correspondiente, en concordancia a los lineamientos que establezca el Sistema Nacional DIF.
+TERCERO. Se derogan todas las disposiciones que se opongan a lo establecido en el presente Decreto.
