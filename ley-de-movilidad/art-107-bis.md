@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 13 DE NOVIEMBRE DE 2020)
-Artículo 107 Bis. Ante la emisión de nuevas concesiones o las disponibles en el Instituto, los operadores registrados, en el Registro Estatal de Operadores de Taxi conforme a las reglas que al efecto emita el propio Instituto, tendrán derecho de preferencia para ser titulares de una concesión, respetando en todo momento la antigüedad de los operadores en el municipio de que se trate.
+(REFORMADO, P.O. 24 DE JULIO DE 2024)
+Artículo 107 Bis. Ante la emisión de nuevas concesiones o las disponibles en el Instituto, los operadores inscritos en el Registro Estatal de Operadores de Taxi, conforme a las reglas que al efecto emita el Instituto, tendrán derecho de preferencia para ser titulares de las concesiones del servicio público de transporte de pasajeros en su clasificación de automóviles de alquiler, en la modalidad de ruletero, respetando en todo momento la antigüedad de los operadores en el municipio de que se trate.
