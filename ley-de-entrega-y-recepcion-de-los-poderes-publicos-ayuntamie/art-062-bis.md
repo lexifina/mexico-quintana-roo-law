@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE JULIO DE 2024)
+Artículo 62 Bis. El Acta Administrativa se emitirá en original, por duplicado, debiendo quedar un tanto para la persona servidora pública entrante y otro para la persona servidora pública saliente, y dos copias digitales, mismas que se deberán elaborar en el mismo acto o en un plazo no mayor a tres días hábiles posteriores a la firma del Acta Administrativa, una para que sea entregada para el resguardo del Ente Público y otra para el resguardo de la Autoridad Supervisora.

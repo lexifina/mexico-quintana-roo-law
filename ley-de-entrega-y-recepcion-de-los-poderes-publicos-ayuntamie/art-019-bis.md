@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE JULIO DE 2024)
+Artículo 19 Bis. Las personas servidoras públicas que se separen temporalmente de su empleo, cargo o comisión por un plazo de tres meses o más, cualquiera que sea el motivo, deberán realizar el Proceso de Entrega Recepción con la persona servidora pública que determine la normatividad interna del Ente Público en caso de ausencia temporal de la persona Titular de la unidad administrativa o con la persona servidora pública que designe la persona superior jerárquica.
