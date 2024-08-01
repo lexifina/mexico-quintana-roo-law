@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE JULIO DE 2024)
+Artículo 34 Duodecies.- Los avalúos comerciales que expidan los Peritos Valuadores Inmobiliarios para Fines Fiscales conforme a las disposiciones de este Capítulo tendrán una vigencia de seis meses, contados a partir de la fecha en que se expidan, salvo que durante ese período los inmuebles objeto de avalúo sufran modificaciones que impliquen variaciones en sus características físicas.
+Los avalúos a que se refiere este artículo deberán ser realizados a través del sistema y conforme al Formato electrónico de Avalúo de Bienes Inmuebles para Fines Fiscales que establezca el SATQ mediante reglas de carácter general.

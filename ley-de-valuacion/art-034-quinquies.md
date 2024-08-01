@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE JULIO DE 2024)
+Artículo 34 Quinquies.- Se crea el Registro Estatal de Peritos Valuadores Inmobiliarios para Fines Fiscales del SATQ, como un medio de consulta y control del ejercicio de la valuación en apoyo a la sociedad sobre las personas que pueden practicar avalúos (sic) bienes inmuebles como actividad profesional en el Estado para determinar el valor comercial de los bienes inmuebles mediante un avalúo que puedan tener repercusiones fiscales.
