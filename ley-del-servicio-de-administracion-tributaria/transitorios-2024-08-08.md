@@ -1,0 +1,4 @@
+P.O. 8 DE AGOSTO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 261 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DEL SERVICIO DE ADMINISTRACION TRIBUTARÍA DEL ESTADO DE QUINTANA ROO Y DE LA LEY DE COORDINACIÓN FISCAL DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrara en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. En un plazo de ciento ochenta días naturales contados a partir de la vigencia del presente Decreto, la persona Titular del Poder Ejecutivo del Estado y el Servicio de Administración Tributaria del Estado de Quintana Roo, en el ámbito de sus atribuciones deberán llevar a cabo la armonización a su Reglamento y sus manuales de organización y de procedimientos, conforme a lo establecido en el presente Decreto.
