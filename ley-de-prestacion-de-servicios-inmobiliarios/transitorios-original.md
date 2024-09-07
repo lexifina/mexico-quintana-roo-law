@@ -1,0 +1,13 @@
+TRANSITORIOS
+ARTÍCULO PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+ARTÍCULO SEGUNDO. Se abroga la Ley de Prestación de Servicios Inmobiliarios del Estado de Quintana Roo, publicada en el Periódico Oficial del Estado de fecha 6 de Julio de 2014.
+ARTÍCULO TERCERO. Las personas que con la entrada en vigor de la presente Ley estén llevando a cabo los servicios inmobiliarios a que se refiere este ordenamiento y que por lo mismo encuadren dentro de las hipótesis de un prestador de servicios inmobiliarios, dentro de un plazo de doce meses contados a partir de su entrada en vigor deberán tramitar y obtener su licencia ante la Secretaría para continuar sus actividades.
+ARTÍCULO CUARTO. Las personas que a la entrada en vigor de la presente Ley estén llevando a cabo la prestación de servicios inmobiliarios y que cuenten con matrícula estatal vigente a que se refiere el ordenamiento de la Ley de Prestación de Servicios Inmobiliarios del Estado de Quintana Roo, publicada en el Periódico Oficial del Estado, conservarán sus derechos adquiridos, su categoría será como asesor inmobiliario, en tanto actualice en el momento que le corresponda la actualización de su matrícula ante la Secretaría, a partir de su entrada en vigor del presente ordenamiento.
+ARTÍCULO QUINTO. Se estará a lo dispuesto en la Ley de Derechos del Estado de Quintana Roo, respecto del ejercicio fiscal que corresponda, para el pago de los derechos para obtener la licencia como persona prestadora de servicios inmobiliarios en las diferentes categorías descritas y señaladas en la presente Ley.
+ARTÍCULO SEXTO. Se establece un plazo de 90 días para la expedición del Reglamento de la presente Ley, contados a partir de la entrada en vigor de la misma.
+Salón de Sesiones del Honorable Poder Legislativo, en la ciudad de Chetumal, capital del Estado de Quintana Roo, a los seis días del mes de mayo del año dos mil veinticuatro.
+Diputado Presidente:
+C. Issac Janix Alanís.
+Diputada Secretaria:
+Lic. Guillermina Verdejo Rosas.
+En cumplimiento a lo dispuesto por la fracción II del Artículo 91 de la Constitución Política del Estado Libre y Soberano de Quintana Roo, y para su debida publicación y observancia, promulgo el presente Decreto número 229 en la Residencia Oficial del Poder Ejecutivo del Estado, en la Ciudad de Chetumal, Quintana Roo, a 07 de mayo de 2024,- Lic. María Elena H. Lezama Espinosa, Gobernadora del Estado.- Rúbrica.- Conforme a los artículos 93 de la Constitución Política del Estado Libre y Soberano de Quintana Roo, y 11 de la Ley Orgánica de la Administración Pública del Estado de Quintana Roo, refrendado por la Secretaria de Gobierno, Lic. María Cristina Torres Gómez.- Rúbrica.
