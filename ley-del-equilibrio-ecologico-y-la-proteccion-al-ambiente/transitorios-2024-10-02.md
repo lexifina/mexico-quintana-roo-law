@@ -1,0 +1,4 @@
+P.O. 2 DE OCTUBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 001 POR EL QUE SE REFORMAN: LAS FRACCIONES I, II, VII, X, XI, XII, XIII, XVIII Y X1X DEL ARTÍCULO 24 SE ADICIONAN: UN ÚLTIMO PÁRRAFO AL ARTÍCULO 24; EL ARTÍCULO 37 BIS Y EL ARTÍCULO 45 BIS, TODOS DE LA LEY DEL EQUILIBRIO ECOLÓGICO Y LA PROTECCIÓN AL AMBIENTE DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
