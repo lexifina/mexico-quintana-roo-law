@@ -1,10 +1,12 @@
-(ADICIONADO, P.O. 19 DE JULIO DE 2017)
-Artículo 35 Quinquies.- La designación del titular del Órgano Interno de Control se llevará a cabo de conformidad con el procedimiento siguiente:
-(REFORMADA, P.O. 14 DE SEPTIEMBRE DE 2021)
-I. La Mesa Directiva de la Legislatura o la Comisión Permanente, a propuesta de la Comisión Anticorrupción, Participación Ciudadana y Órganos Autónomos, expedirá una convocatoria pública en la que se establecerán los medios idóneos para acreditar el cumplimiento de los requisitos de elegibilidad, así como los plazos y términos de participación para la elección del titular del Órgano Interno de Control, misma que deberá publicarse el mismo día de su emisión en la página web del Poder Legislativo y en dos periódicos de mayor circulación en el Estado, además en las redes sociales del Poder Legislativo para mayor publicidad;
+(REFORMADO PRIMER PÁRRAFO, P.O. 9 DE OCTUBRE DE 2024)
+Artículo 35 Quinquies.- La designación de la persona titular del Órgano Interno de Control se llevará a cabo de conformidad con el procedimiento siguiente:
+(REFORMADA, P.O. 9 DE OCTUBRE DE 2024)
+I. La Mesa Directiva en funciones de la Legislatura, a propuesta de la Comisión Anticorrupción, Participación Ciudadana y Órganos Autónomos, expedirá una convocatoria pública en la que se establecerán los medios idóneos para acreditar el cumplimiento de los requisitos de elegibilidad, así como los plazos y términos de participación para la elección de la persona titular del Órgano Interno de Control, misma que deberá publicarse el mismo día de su emisión en la página web del Poder Legislativo y en dos periódicos de mayor circulación en el Estado, además en las redes sociales del Poder Legislativo para mayor publicidad;
+(ADICIONADA, P.O. 19 DE JULIO DE 2017)
 II. Las solicitudes deberán ser dirigidas a la Comisión Anticorrupción, Participación Ciudadana y Órganos Autónomos, presentarse dentro de los cinco días hábiles contados a partir del día siguiente de la fecha de la emisión de la convocatoria, así como estar debidamente suscritas por el solicitante;
-(REFORMADA, P.O. 14 DE SEPTIEMBRE DE 2021)
-III. La Comisión Anticorrupción, Participación Ciudadana y Órganos Autónomos, procederá a la revisión y análisis de las mismas, entrevistando a cada uno de los aspirantes que hayan cumplido con los requisitos exigidos para el cargo; Una vez vencido el plazo para la presentación de las solicitudes, dentro de los cinco días hábiles siguientes, dicha Comisión procederá a presentar el dictamen de los candidatos que, a su juicio, considere idóneos para la conformación de una terna ante la Legislatura del Estado para la designación correspondiente;
-(REFORMADA, P.O. 14 DE SEPTIEMBRE DE 2021)
-IV. Aprobada la designación el titular rendirá la protesta de ley ante la Legislatura del Estado.
+(REFORMADA, P.O. 9 DE OCTUBRE DE 2024)
+III. La Comisión Anticorrupción, Participación Ciudadana y Órganos Autónomos, procederá a la revisión y análisis de las mismas, entrevistando a cada uno de los aspirantes que hayan cumplido con los requisitos exigidos para el cargo; una vez vencido el plazo para la presentación de las solicitudes, dentro de los cinco días hábiles siguientes, dicha Comisión procederá a presentar el dictamen de las personas candidatas que, a su juicio, considere idóneas para la conformación de una terna ante la Legislatura del Estado para la designación correspondiente;
+(REFORMADA, P.O. 9 DE OCTUBRE DE 2024)
+IV. Aprobada la designación la persona titular rendirá la protesta de ley ante la Legislatura del Estado.
+(ADICIONADO, P.O. 19 DE JULIO DE 2017)
 Dicha designación deberá publicarse en el Periódico Oficial del Estado de Quintana Roo, señalando el inicio y fin del periodo del en cargo.

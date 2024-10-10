@@ -2,8 +2,8 @@
 Artículo 35 Septies.- La persona titular del Órgano Interno de Control será removida de su cargo por la Legislatura, por las siguientes causas:
 (ADICIONADA, P.O. 19 DE JULIO DE 2017)
 I. Incurrir en violaciones graves a los derechos humanos, previstos por la Constitución y los tratados internacionales de los que el Estado Mexicano sea parte;
-(ADICIONADA, P.O. 19 DE JULIO DE 2017)
-II. Incurrir en responsabilidad administrativa grave en términos de la Ley General de Responsabilidades Administrativas;
+(REFORMADA, P.O. 9 DE OCTUBRE DE 2024)
+II. Incurrir en responsabilidad administrativa grave en términos de la Ley General de Responsabilidades Administrativas y de la Ley de Responsabilidades Administrativas del Estado de Quintana Roo y sus Municipios;
 (REFORMADA, P.O. 14 DE SEPTIEMBRE DE 2021)
 III. Haber recibido condena de manera firme por delito doloso;
 (ADICIONADA, P.O. 19 DE JULIO DE 2017)
