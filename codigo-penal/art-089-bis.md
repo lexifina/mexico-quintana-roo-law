@@ -15,8 +15,8 @@ VII. Que haya existido entre el activo y la víctima una relación sentimental, 
 VIII. Que la víctima haya sido incomunicada, cualquiera que sea el tiempo previo a la privación de la vida.
 (ADICIONADA, P.O. 7 DE NOVIEMBRE DE 2023)
 IX. Cuando la muerte haya sido provocada por lesiones hechas mediante el uso de cualquier sustancia corrosiva, ácida o agente físico.
-(REFORMADO, P.O. 7 DE NOVIEMBRE DE 2023)
-Además de la sanción anterior, el sujeto activo perderá todos los derechos con relación a la víctima, incluido los de carácter sucesorio. En su caso, también perderá todo derecho con relación a los hijos de la víctima, garantizando el interés superior de la niñez en términos de la Ley de la materia.
+(REFORMADO, P.O. 9 DE OCTUBRE DE 2024)
+Además de la sanción anterior, el sujeto activo perderá todos los derechos con relación a la víctima, incluido (sic) los de carácter sucesorio. En su caso, también perderá todo derecho con relación a las hijas e hijos de la víctima, incluyendo la perdida de la patria potestad, tutela, guarda y custodia, régimen de visitas y convivencias, no obstante lo cual, subsistirá la obligación de ministrar alimentos, en los términos que corresponda, garantizando el interés superior de la niñez en términos de la Ley de la materia.
 (REFORMADO, P.O. 4 DE JULIO DE 2017)
 En caso de que no se acredite el feminicidio, se aplicarán las reglas del homicidio.
 (REFORMADO, P.O. 4 DE JULIO DE 2017)
