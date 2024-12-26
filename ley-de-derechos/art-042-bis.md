@@ -11,10 +11,10 @@ II. Venta de bebidas alcohólicas en envase abierto o al copeo;5,072.00
 III. Venta de bebidas alcohólicas en envase cerrado;2,898.00
 IV. Venta de bebidas alcohólicas en envase cerrado para su distribución al mayoreo, y5,072.00
 V. Bodega o almacén de bebidas alcohólicas como sucursal sin venta directa al público.SIN COSTO
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-VI. Servicio en línea y/o a domicilio.2,898.00
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-VII. Servicio en línea y/o a domicilio para su distribución al mayoreo.5,072.00
+VI. (DEROGADA, P.O. 23 DE DICIEMBRE DE 2024)
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2024)
+VII. Licencia adicional de venta
+en línea y/o a domicilio5,072.00
 Para la expedición de licencias únicas, se pagará la tarifa correspondiente por cada giro o establecimiento, que incluya esta licencia.
 CONCEPTOTARIFA
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2020)
@@ -23,8 +23,7 @@ I. Venta de bebidas alcohólicas en envase abierto o al copeo, exclusivamente co
 II. Venta de bebidas alcohólicas en envase abierto o al copeo;800.00
 III. Venta de bebidas alcohólicas en envase cerrado;483.00
 IV. Venta de bebidas alcohólicas en envase cerrado para su distribución al mayoreo.604.00
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-V. Servicio en línea y/o a domicilio.483.00
+V. (DEROGADA, P.O. 23 DE DICIEMBRE DE 2024)
 (ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
 VI. Servicio en línea y/o a domicilio para su distribución al mayoreo.604.00
 CONCEPTOTARIFA
@@ -34,10 +33,10 @@ I. Venta de bebidas alcohólicas en envase abierto o al copeo, exclusivamente co
 II. Venta de bebidas alcohólicas en envase abierto o al copeo724.00
 III. Venta de bebidas alcohólicas en envase cerrado;289.00
 IV. Venta de bebidas alcohólicas en envase cerrado para su distribución al mayoreo.363.00
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-V. Servicio en línea y/o a domicilio.289.00
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-VI. Servicio en línea y/o a domicilio para su distribución al mayoreo.363.00
+V. (DEROGADA, P.O. 23 DE DICIEMBRE DE 2024)
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2024)
+VI. Licencia adicional de venta en línea
+y/o a domicilio363.00
 El derecho por cambio de giro corresponderá a la diferencia entre el costo del giro autorizado y el giro solicitado.
 Por la transferencia temporal del uso de los derechos y obligaciones de una licencia de bebidas alcohólicas, mediante el contrato de comodato se generará a cargo del comodatario un derecho equivalente a:
 CONCEPTOTARIFA
@@ -47,10 +46,10 @@ I. Venta de bebidas alcohólicas en envase abierto o al copeo, exclusivamente co
 II. Venta de bebidas alcohólicas en envase abierto o al copeo;355.00
 III. Venta de bebidas alcohólicas en envase cerrado;118.00
 IV. Venta de bebidas alcohólicas en envase cerrado para su distribución al mayoreo.307.00
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-V. Servicio en línea y/o a domicilio.118.00
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-VI. Servicio en línea y/o a domicilio para su distribución al mayoreo.307.00
+V. (DEROGADA, P.O. 23 DE DICIEMBRE DE 2024)
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2024)
+VI. Licencia adicional de venta en línea
+y/o a domicilio307.00
 Las licencias de bebidas alcohólicas se deberán refrendar anualmente en la Secretaría, dentro de los primeros dos meses del año, de acuerdo con las tarifas siguientes:
 CONCEPTOTARIFA
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2020)
@@ -59,10 +58,10 @@ I. Venta de bebidas alcohólicas en envase abierto o al copeo, exclusivamente co
 II. Venta de bebidas alcohólicas en envase abierto o al copeo;319.00
 III. Venta de bebidas alcohólicas en envase cerrado;106.00
 IV. Venta de bebidas alcohólicas en envase cerrado para su distribución al mayoreo.276.00
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-V. Servicio en línea y/o a domicilio.106.00
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-VI. Servicio en línea y/o a domicilio para su distribución al mayoreo.276.00
+V. (DEROGADA, P.O. 23 DE DICIEMBRE DE 2024)
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2024)
+VI. Licencia adicional de venta en línea
+y/o a domicilio276.00
 CONCEPTOTARIFA
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2020)
 6. PERMISOS ESPECIALES.UMA
@@ -71,12 +70,9 @@ I. Cuando se enajenen bebidas alcohólicas en envase cerrado con presentación d
 II. Por evento, por cada punto
 de venta80.00
 III. Servicio público especializado.110.00
-(ADICIONADA, P.O. 22 DE DICIEMBRE DE 2021)
-IV. Restaurante, Restaurante-Bar240.00
-(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2021)
-Para el caso de la fracción IV, si el trámite se realiza dentro de los dos primeros meses del año, los contribuyentes no serán sujetos del pago de este derecho.
-(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2021)
-Tratándose de la apertura del establecimiento a que se refiere la fracción IV, si el permiso se tramita dentro de los dos primeros meses contados a partir de su apertura, tampoco serán sujetos del pago de este derecho.
+IV. (DEROGADA, P.O. 23 DE DICIEMBRE DE 2024)
+(DEROGADO [N. DE E. ESTE PÁRRAFO], P.O. 23 DE DICIEMBRE DE 2024)
+(DEROGADO SEGUNDO PÁRRAFO, P.O. 23 DE DICIEMBRE DE 2024)
 CONCEPTOTARIFA
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2020)
 7. PERMISO PROVISIONAL.UMA
@@ -84,10 +80,10 @@ I. Venta de bebidas alcohólicas en envase abierto o al copeo, exclusivamente co
 II. Venta de bebidas alcohólicas en envase abierto o al copeo120.00
 III. Venta de bebidas alcohólicas en envase cerrado;80.00
 IV. Venta de bebidas alcohólicas en envase cerrado para su distribución al mayoreo.150.00
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-V. Servicio en línea y/o a domicilio.80.00
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-VI. Servicio en línea y/o a domicilio para su distribución al mayoreo.150.00
+V. (DEROGADA, P.O. 23 DE DICIEMBRE DE 2024)
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2024)
+VI. Licencia adicional de venta en
+línea y/o a domicilio150.00
 (ADICIONADO, P.O. 21 DE DICIEMBRE DE 2020)
 CONCEPTOTARIFA
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2020)

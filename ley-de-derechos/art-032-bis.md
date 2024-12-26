@@ -63,7 +63,8 @@ XII. (DEROGADA, P.O. 22 DE DICIEMBRE DE 2021)
 (ADICIONADA, P.O. 18 DE DICIEMBRE DE 2019)
 XIII. Revisión de
 proyectos de factibilidad236.71355.07
-(ADICIONADA, P.O. 18 DE DICIEMBRE DE 2019)
-XIV. Emisión de Opinión Favorable para la fabricación de armas de fuego, armas de gas y municiones, fabricación de pólvoras, explosivos, artificios o de substancias químicas relacionadas con los explosivos591.79
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2024)
+XIV. Emisión del dictamen de anuencia para la
+expedición de la opinión favorable.591.79
 (ADICIONADO, P.O. 22 DE DICIEMBRE DE 2021)
 La administración pública centralizada estatal y la municipal, no serán sujetos a la obligación de pago de los derechos a que se refieren las fracciones I, II, III, IV, V, VI, VII, VIII, y X del presente artículo.

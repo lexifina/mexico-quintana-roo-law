@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2024)
+Artículo 60-Septendecies. Las personas retenedoras del impuesto deberán enterar las retenciones efectuadas mediante la presentación de declaraciones mensuales definitivas, a más tardar el día 10 del mes siguiente a aquel en que se causó, en las formas autorizadas por la Secretaría a través del SATQ, conforme a los medios electrónicos dispuestos por este, mismas que se darán a conocer mediante reglas de carácter general.
