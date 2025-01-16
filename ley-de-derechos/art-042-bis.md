@@ -24,8 +24,8 @@ II. Venta de bebidas alcohólicas en envase abierto o al copeo;800.00
 III. Venta de bebidas alcohólicas en envase cerrado;483.00
 IV. Venta de bebidas alcohólicas en envase cerrado para su distribución al mayoreo.604.00
 V. (DEROGADA, P.O. 23 DE DICIEMBRE DE 2024)
-(ADICIONADA, P.O. 21 DE DICIEMBRE DE 2020)
-VI. Servicio en línea y/o a domicilio para su distribución al mayoreo.604.00
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2024) (F. DE E., P.O. 16 DE ENERO DE 2025)
+VI. Licencia adicional de venta en línea y/o a domicilio604.00
 CONCEPTOTARIFA
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2020)
 3. CAMBIO DE DOMICILIO.UMA
