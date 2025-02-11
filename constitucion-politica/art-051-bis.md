@@ -2,14 +2,16 @@
 ARTICULO 51 BIS.- Esta constitución reconoce que los órganos públicos autónomos, tendrán personalidad jurídica y patrimonio propios, plena autonomía técnica, de gestión, independencia funcional y financiera, capacidad para decidir sobre el ejercicio de su presupuesto y determinar su organización interna. Los titulares de los órganos públicos autónomos, así como los servidores públicos que en ellos presten sus servicios, se sujetarán a las disposiciones contenidas en esta Constitución y demás leyes que de ella emanen.
 (ADICIONADO, P.O. 14 DE JULIO DE 2020)
 Cada uno de los nombramientos de las personas titulares o de los integrantes de los órganos colegiados de los órganos públicos autónomos se realizarán en apego al principio de paridad de género. En la estructura orgánica de estos órganos se promoverá este principio.
-(ADICIONADO, P.O. 14 DE MAYO DE 2021)
-Los órganos públicos autónomos deberán regirse bajo los lineamientos de Estado Abierto, en donde se garantizará la transparencia, la rendición de cuentas, la participación ciudadana y la colaboración e innovación.
+(REFORMADO, P.O. 11 DE FEBRERO DE 2025)
+Los órganos públicos autónomos deberán regirse bajo los lineamientos de Estado Abierto, en donde se garantizará la transparencia, el acceso a la información pública, la rendición de cuentas, la participación ciudadana, la colaboración, innovación y gobernabilidad de las tecnologías de la información y comunicación para la gestión pública.
 (REFORMADO, P.O. 9 DE SEPTIEMBRE DE 2024)
 Cada órgano público autónomo rendirá un informe anual de labores y resultados. La persona titular o en su caso quien detente la presidencia del órgano, comparecerá ante el Pleno de la Legislatura, para detallar su contenido y contestar los planteamientos que se le formulen, con excepción de la Fiscalía General del Estado, quien comparecerá ante la Comisión de Justicia de la Legislatura. El Pleno de la Legislatura podrá remitir los posicionamientos y recomendaciones que estimen pertinentes.
 (ADICIONADO, P.O. 16 DE JUNIO DE 2022)
 El Informe será rendido conforme a lo dispuesto por la legislación aplicable, remitido a la persona titular del Poder Ejecutivo del Estado, difundido con amplitud a la ciudadanía y publicado en los medios electrónicos oficiales de cada órgano.
 (ADICIONADO, P.O. 9 DE SEPTIEMBRE DE 2024)
 Cada órgano público autónomo contará con un órgano interno de control, a cargo de una persona titular, designada por la Legislatura del Estado conforme al procedimiento establecido en las leyes respectivas, con excepción de la persona Titular del Órgano Interno de Control del Tribunal Electoral del Estado, la cual será designada y removida por el Pleno del Tribunal conforme a lo dispuesto en la ley.
+(ADICIONADO, P.O. 11 DE FEBRERO DE 2025)
+Los Órganos Internos de Control tendrán competencia para conocer de los asuntos relacionados con el acceso a la información pública y protección de datos personales a cargo de los Órganos Públicos Autónomos; también conocerán de los recursos de revisión que interpongan los particulares respecto de las resoluciones que estos emitan en los términos que establezca la ley.
 (ADICIONADO [N. DE E. CON SUS FRACCIONES], P.O. 9 DE SEPTIEMBRE DE 2024)
 Las personas Titulares de los órganos internos de control durarán en su cargo un periodo de 7 años, con posibilidad de reelección por un periodo adicional y deberán satisfacer los siguientes requisitos:
 I.- Contar con ciudadanía mexicana y estar en pleno goce de sus derechos políticos y civiles;
