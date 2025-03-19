@@ -1,9 +1,9 @@
 (DEROGADO ÚLTIMO PÁRRAFO, P.O. 21 DE SEPTIEMBRE DE 2017)
-(REFORMADO [N. DE E. ADICIONADO], P.O. 21 DE SEPTIEMBRE DE 2017)
-ARTICULO 52 BIS.- Cuando se produzcan vacantes en la Legislatura por cualquiera de las causas previstas por esta Constitución, si se tratare de Diputados propietarios electos por el principio de mayoría relativa, se convocará al suplente respectivo.
+(REFORMADO PRIMER PÁRRAFO, P.O. 19 DE MARZO DE 2025)
+ARTICULO 52 BIS.- Cuando se produzcan vacantes en la Legislatura por cualquiera de las causas previstas por esta Constitución, si se tratare de Diputadas o Diputados propietarios electos por el principio de mayoría relativa, se convocará al suplente respectivo.
 (NOTA: EL 5 DE DICIEMBRE DE 2017, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL APARTADO VIII, ASÍ COMO EN EL RESOLUTIVO CUARTO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 142/2017, DECLARÓ LA INVALIDEZ DEL PÁRRAFO SEGUNDO DE ESTE ARTÍCULO INDICADO CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS EL 5 DE DICIEMBRE DE 2017 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
 CUANDO SE ACTUALICE LA VACANTE ABSOLUTA DE LA FÓRMULA DE DIPUTADOS POR EL PRINCIPIO DE MAYORÍA RELATIVA, ÉSTA SERÁ CUBIERTA POR EL INTEGRANTE DE LA LISTA REGISTRADA POR EL MISMO PARTIDO POLÍTICO BAJO EL PRINCIPIO DE REPRESENTACIÓN PROPORCIONAL, QUE SIGA EN EL ORDEN DE PRELACIÓN, EL CUAL DE FORMA PREFERENTE SERÁ DEL MISMO GÉNERO.
-(REFORMADO, P.O. 19 DE OCTUBRE DE 2018)
-En el caso de las ausencias temporales o definitivas del Diputado propietario por el principio de representación proporcional, se cubrirán con el siguiente ciudadano del mismo género, en orden de prelación postulado por los partidos políticos de manera directa conforme a sus normas internas, de conformidad con la ley de la materia.
-(ADICIONADO, P.O. 19 DE OCTUBRE DE 2018)
-En ningún caso, la persona que haya asumido el cargo en los términos del párrafo anterior, podrá cubrir la ausencia de otro diputado diferente al que haya cubierto.
+(REFORMADO, P.O. 19 DE MARZO DE 2025)
+En el caso de las ausencias temporales o definitivas de Diputadas y Diputados propietarios por el principio de representación proporcional, se cubrirán con la siguiente persona ciudadana del mismo género, en orden de prelación postulado por los partidos políticos de manera directa conforme a sus normas internas, de conformidad con la ley de la materia.
+(REFORMADO, P.O. 19 DE MARZO DE 2025)
+En ningún caso, la persona que haya asumido el cargo en los términos del párrafo anterior, podrá cubrir la ausencia de otra Diputada o Diputado diferente al que haya cubierto.

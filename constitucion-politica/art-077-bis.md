@@ -1,11 +1,14 @@
 (ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, P.O. 3 DE NOVIEMBRE DE 2016)
 SECCION SEPTIMA
 DE LAS FACULTADES DE LA LEGISLATURA EN MATERIA DE DEUDA PÚBLICA
+(REFORMADO PRIMER PÁRRAFO, P.O. 19 DE MARZO DE 2025)
+ARTICULO 77 BIS.- El Estado y los Municipios no podrán contraer obligaciones o empréstitos sino cuando se destinen a inversiones públicas productivas y a su refinanciamiento o reestructura, mismas que deberán realizarse bajo las mejores condiciones del mercado, inclusive los que contraigan organismos descentralizados, empresas públicas y fideicomisos y, en el caso del Estado, adicionalmente para otorgar garantías respecto al endeudamiento de los Municipios. Lo anterior, conforme a las bases que establezcan la legislatura en la ley correspondiente, en el marco de lo previsto en la Constitución Política de los Estados Unidos Mexicanos, y por los conceptos y hasta por los montos que las mismas aprueben. El Poder Ejecutivo y los ayuntamientos informarán de su ejercicio al rendir la cuenta pública. En ningún caso podrán destinar empréstitos para cubrir gasto corriente.
+(REFORMADO, P.O. 19 DE MARZO DE 2025)
+La Legislatura por el voto de las dos terceras partes de sus integrantes presentes, deberá autorizar los montos máximos para, en las mejores condiciones del mercado, contratar dichos empréstitos y obligaciones, previo análisis de su destino, capacidad de pago y, en su caso, el otorgamiento de garantía o el establecimiento de la fuente de pago.
 (ADICIONADO, P.O. 3 DE NOVIEMBRE DE 2016)
-ARTICULO 77-BIS. El Estado y los Municipios no podrán contraer obligaciones o empréstitos sino cuando se destinen a inversiones públicas productivas y a su refinanciamiento o reestructura, mismas que deberán realizarse bajo las mejores condiciones del mercado, inclusive los que contraigan organismos descentralizados, empresas públicas y fideicomisos y, en el caso del Estado, adicionalmente para otorgar garantías respecto al endeudamiento de los Municipios. Lo anterior, conforme a las bases que establezcan la legislatura en la ley correspondiente, en el marco de lo previsto en la Constitución Política de los Estados Unidos Mexicanos, y por los conceptos y hasta por los montos que las mismas aprueben. El ejecutivo y los ayuntamientos informarán de su ejercicio al rendir la cuenta pública. En ningún caso podrán destinar empréstitos para cubrir gasto corriente.
-La Legislatura por el voto de las dos terceras partes de sus miembros presentes, deberá autorizar los montos máximos para, en las mejores condiciones del mercado, contratar dichos empréstitos y obligaciones, previo análisis de su destino, capacidad de pago y, en su caso, el otorgamiento de garantía o el establecimiento de la fuente de pago.
 Sin perjuicio de lo anterior, el Estado y los Municipios podrán contratar obligaciones para cubrir sus necesidades de corto plazo, sin rebasar los límites máximos y condiciones que establezca la ley de Disciplina Financiera de las Entidades Federativas y de los Municipios. Las obligaciones a corto plazo, deberán liquidarse a más tardar tres meses antes del término del periodo de gobierno correspondiente y no podrán contratarse nuevas obligaciones durante esos últimos tres meses.
 CAPITULO III
 Del Poder Ejecutivo
+(REFORMADA SU DENOMINACIÓN, P.O. 19 DE MARZO DE 2025)
 SECCION PRIMERA
-Del Gobernador
+De la Gobernadora o el Gobernador
