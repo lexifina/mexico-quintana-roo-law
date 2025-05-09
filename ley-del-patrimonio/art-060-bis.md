@@ -2,8 +2,8 @@
 Artículo 60 Bis.- Corresponde a la Secretaría de Desarrollo Territorial Urbano Sustentable:
 (ADICIONADA, P.O. 16 DE JUNIO DE 2014)
 I. Adquirir, administrar, destinar, custodiar y recuperar, en su caso, los bienes inmuebles que integran el patrimonio del Estado en las materias de su competencia;
-(ADICIONADA, P.O. 16 DE JUNIO DE 2014)
-II. Informar a la Secretaría de los actos jurídicos, registros, altas y bajas que se realicen sobre los bienes inmuebles de su competencia regulados por esta ley;
+(REFORMADA, P.O. 8 DE MAYO DE 2025)
+II. Informar a la SEFIPLAN de los actos jurídicos, registros, altas y bajas que se realicen sobre los bienes inmuebles de su competencia regulados por esta ley;
 (ADICIONADA, P.O. 16 DE JUNIO DE 2014)
 III. Asesorar, apoyar y promover técnica y jurídicamente, la incorporación de la tierra de origen rural al desarrollo urbano;
 (ADICIONADA, P.O. 16 DE JUNIO DE 2014)

@@ -12,8 +12,10 @@ IX. Otorgar, revocar o sustituir poderes especiales o generales;
 X. Aprobar los programas de trabajo;
 XI. Establecer los términos de las leyes aplicables, sistemas de cooperación y coordinación con las entidades de los sectores público, social y privado que se vinculen al objeto social de la Agencia;
 XII. Autorizar la contratación de servicios de asesoría, relacionados con los objetivos de la Agencia, cuando lo estime conveniente;
-XIII. Recibir y, en su caso, aprobar los informes del Director General;
-XIV. Autorizar las ausencias del Director General cuando sean por un plazo mayor de quince días;
+(REFORMADA, P.O. 8 DE MAYO DE 2025)
+XIII. Recibir y, en su caso, aprobar los informes de la Directora o el Director General;
+(REFORMADA, P.O. 8 DE MAYO DE 2025)
+XIV. Autorizar las ausencias de la Directora o el Director General cuando sean por un plazo mayor de quince días;
 XV. Disponer lo conducente para la adecuada administración del patrimonio de la Agencia y cuidar su eficiente manejo;
 XVI. Solicitar al Comité dictámenes u opiniones sobre la viabilidad de los proyectos de Asociaciones público privadas, de conformidad con la Ley de Asociaciones Público Privadas para el Estado y los Municipios de Quintana Roo;
 XVII. Aprobar la viabilidad de los proyectos de Asociaciones público privadas, de conformidad con la Ley de Asociaciones Público Privadas para el Estado y los Municipios de Quintana Roo;
