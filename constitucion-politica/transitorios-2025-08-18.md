@@ -1,0 +1,4 @@
+P.O. 18 DE AGOSTO DE 2025.
+[N. DE E. TRANSITORIOS "DEL DECRETO DE DECLARATORIA NÚMERO: 004 POR EL QUE SE REFORMA EL PÁRRAFO TERCERO DEL ARTÍCULO 31 Y SE ADICIONAN LOS PÁRRAFOS SÉPTIMO Y OCTAVO RECORRIÉNDOSE EN SU ORDEN LOS PÁRRAFOS SUBSECUENTES AL ARTÍCULO 13, TODOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
