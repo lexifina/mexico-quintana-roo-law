@@ -1,0 +1,5 @@
+P.O. 10 DE OCTUBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 146 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE FISCALIZACIÓN Y RENDICIÓN DE CUENTAS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. A la entrada en vigor del presente decreto, la persona Titular de la Unidad de Vigilancia de la Comisión de Hacienda, Presupuesto y Cuenta de la Legislatura del Estado Libre y Soberano de Quintana Roo, designada mediante Decreto 53 expedido por la H. XVII Legislatura del Estado y publicado en el Periódico Oficial del Estado de Quintana Roo en fecha 14 de abril de 2023, queda designada para permanecer en el cargo por un periodo de siete años en términos de lo previsto por el artículo 113 de la Ley de Fiscalización y Rendición de Cuentas contados a partir de la entrada en vigor del presente decreto, quien deberá tomar la protesta correspondiente ante la Legislatura del Estado.
+TERCERO. Se derogan todas las disposiciones de igual o menor jerarquía, que contravengan y/o se opongan a lo dispuesto por el presente Decreto.
