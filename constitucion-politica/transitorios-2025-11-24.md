@@ -1,0 +1,3 @@
+P.O. 24 DE NOVIEMBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO: 153 POR EL QUE SE REFORMAN Y DEROGAN DIVERSAS DISPOSICIONES.DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE QUINTANA ROO".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
