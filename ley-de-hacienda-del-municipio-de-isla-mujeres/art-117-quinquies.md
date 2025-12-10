@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE DICIEMBRE DE 2025)
+ARTÍCULO 117 Quinquies. La Tesorería del Municipio por conducto de su titular gestionará la firma de Convenio con la Comisión Federal de Electricidad con la finalidad de que se concreten los términos y las condiciones de la recaudación de este Derecho con lo que garantizará el entero del cobro de este Derecho, en el plazo que resulte de los convenios que firme el Municipio con la Comisión Federal de Electricidad.
