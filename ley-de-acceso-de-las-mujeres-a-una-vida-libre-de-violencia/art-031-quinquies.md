@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 10 DE DICIEMBRE DE 2025)
+ARTÍCULO 31 QUINQUIES. Las autoridades administrativas estatales y municipales, según sea el caso, la Secretaría de Seguridad Ciudadana, la Fiscalía General del Estado y el Poder Judicial del Estado, darán cumplimiento al Capítulo VII del Título I de la Ley General, en relación con el Registro Nacional de Medidas u Órdenes de Protección de las Mujeres, Adolescentes, Niñas y Niños, para garantizar la continuidad, efectividad y no interrupción de las medidas u órdenes de protección con independencia del lugar en que hayan sido ordenadas.
+Asimismo, deberán integrar, procesar y actualizar la información para el Registro Nacional.

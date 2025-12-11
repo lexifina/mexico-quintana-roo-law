@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 2 DE JUNIO DE 2023)
-ARTÍCULO 31 BIS.- Las autoridades emisoras de las órdenes de protección, tendrán la obligación de registrar las mismas dentro de los cinco días hábiles posteriores a su emisión, en las bases de datos del Banco Nacional de Datos e Información sobre Casos de Violencia contra las Mujeres, BANAVIM, y del Banco Estatal de Datos e Información sobre casos de Violencia contra las Mujeres, BAESVIM.
+(REFORMADO, P.O. 10 DE DICIEMBRE DE 2025)
+ARTÍCULO 31 BIS. Las autoridades emisoras de las órdenes de protección, tendrán la obligación de registrar las mismas dentro de los cinco días hábiles posteriores a su emisión, en las bases de datos del Banco Nacional de Datos e Información sobre Casos de Violencia contra las Mujeres, del Registro Nacional, BANAVIM, y del Banco Estatal de Datos e Información sobre casos de Violencia contra las Mujeres, BAESVIM.
