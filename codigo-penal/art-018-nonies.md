@@ -7,8 +7,7 @@ IV. Robo, previsto por los artículos 142, 143, 145, 145-TER, y 146-TER;
 V. Abuso de confianza, previsto por los artículos 150 y 151;
 VI. Fraude, previsto por los artículos 152, 153 y 154;
 VII. Administración fraudulenta, previsto por el artículo 155;
-(REFORMADA, P.O. 5 DE OCTUBRE DE 2023)
-VIII. Extorsión, previsto por el artículo 124 TER.
+VIII. (DEROGADA, P.O. 10 DE DICIEMBRE DE 2025)
 IX. Usura, previsto por el artículo 157;
 X. Despojo, previsto por los artículos 158 y 159;
 XI. Daños, previsto por los artículos 161 y 162;

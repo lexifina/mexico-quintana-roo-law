@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 10 DE DICIEMBRE DE 2025)
+Artículo 319 Bis. La Secretaría y las instituciones de seguridad ciudadana municipales dispondrán de una unidad administrativa responsable de los Centros de Mando e Inteligencia, debidamente certificada y acreditada de conformidad con los estándares y evaluaciones que al efecto se emitan.
+Estas unidades administrativas, a través de sus C5 o C2, respectivamente, deberán mantener actualizada diariamente las bases de datos de sus sistemas de gestión de incidentes, de videovigilancia y reconocimiento biométrico, así como, la información que generen en las líneas de atención de denuncia anónima. Asimismo, serán las responsables de compartir la información que generen con el Sistema Nacional de Información.
