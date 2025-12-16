@@ -8,7 +8,7 @@ II. Lugar y domicilio en que se prestan los servicios;
 III. Fecha de inicio de operaciones o apertura del establecimiento turístico;
 (REFORMADA, P.O. 5 DE MARZO DE 2024)
 IV. Tipo de los servicios que se prestan y su categoría conforme a las normas aplicables;
-(REFORMADA [N. DE E. ADICIONADA], P.O. 5 DE MARZO DE 2024)
-V. Licencia de Funcionamiento y Registro Estatal de Contribuyentes, y
+(REFORMADA, P.O. 16 DE DICIEMBRE DE 2025)
+V. Constancia de Obligaciones Fiscales Estatales y Registro Estatal de Contribuyentes, y
 (ADICIONADA [N. DE E. REUBICADA], P.O. 5 DE MARZO DE 2024)
 VI. La demás información que la Secretaría estime necesaria para fines de difusión.

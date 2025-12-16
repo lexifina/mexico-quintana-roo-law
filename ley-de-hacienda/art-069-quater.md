@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2025)
+Artículo 69 Quáter. Es objeto de esta contribución el beneficio que se derive para los propietarios o poseedores de inmuebles, con motivo de la ejecución de la o las obras públicas por parte del Gobierno del Estado de Quintana Roo o de sus entidades paraestatales, de conformidad con lo previsto en la Ley de Obras Públicas y Servicios Relacionados con las mismas del Estado de Quintana Roo.
+Para efectos del presente capítulo, se entenderá por inmuebles, los predios urbanos, suburbanos y rústicos, así como los pisos, departamentos, viviendas o locales que formen parte de un condominio, ubicados en una Zona Prioritaria de Gestión Turística Sustentable.
+No se pagará esta contribución por el beneficio que obtenga la Federación, el Estado y los Municipios, por sus bienes de dominio público ubicados en una Zona Prioritaria de Gestión Turística Sustentable, que se encuentren directamente afectos al uso común de conformidad con las disposiciones aplicables, salvo que tales bienes sean utilizados por Entidades Paraestatales o por particulares bajo cualquier título, para fines administrativos o propósitos distintos a los de su objeto público.
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 16 DE DICIEMBRE DE 2025)
+De la base
