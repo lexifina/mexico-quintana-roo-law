@@ -45,10 +45,10 @@ c) Museo Maya de Cancún (Nacionales)1.50
 d) Museo Maya de Cancún (Extranjeros)4.25
 e) San Miguelito (Nacionales)1.50
 f) San Miguelito (Extranjeros)4.25
-VIII Municipio de Cozumel:
+VIII. (DEROGADA, P.O. 18 DE DICIEMBRE DE 2025)
 CONCEPTOUMA
-a) San Gervasio (Nacionales)1.50
-b) San Gervasio (Extranjeros4.25
+a) (DEROGADO, P.O. 18 DE DICIEMBRE DE 2025)
+b) (DEROGADO, P.O. 18 DE DICIEMBRE DE 2025)
 Pagarán el 50% de los derechos a que se refieren los incisos a) y c) de la fracción I, incisos a), c) y e) de las fracciones II, IV y VII, inciso a) de las fracciones III, V, VI y VIII de este artículo las personas mayores de 60 años, menores de 10 años, jubilados, pensionados, discapacitados, profesores y estudiantes en activo, así como los pasantes o investigadores que cuenten con permiso del Instituto Nacional de Antropología e Historia, para realizar estudios afines a los museos, monumentos y zonas arqueológicas a que se refiere este artículo.
 Estarán exentos del pago de este derecho los visitantes nacionales y extranjeros residentes en México, los domingos.
 Estarán exentos del pago de este derecho los quintanarroenses.

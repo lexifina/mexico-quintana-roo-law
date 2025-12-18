@@ -24,8 +24,9 @@ II. Venta de bebidas alcohólicas en envase abierto o al copeo;800.00
 III. Venta de bebidas alcohólicas en envase cerrado;483.00
 IV. Venta de bebidas alcohólicas en envase cerrado para su distribución al mayoreo.604.00
 V. (DEROGADA, P.O. 23 DE DICIEMBRE DE 2024)
-(REFORMADA, P.O. 23 DE DICIEMBRE DE 2024) (F. DE E., P.O. 16 DE ENERO DE 2025)
-VI. Licencia adicional de venta en línea y/o a domicilio604.00
+(REFORMADA, P.O. 18 DE DICIEMBRE DE 2025)
+VI. Servicio en línea y/o a domicilio para su
+distribución a mayoreo604.00
 CONCEPTOTARIFA
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2020)
 3. CAMBIO DE DOMICILIO.UMA
@@ -65,7 +66,10 @@ y/o a domicilio276.00
 CONCEPTOTARIFA
 (REFORMADO, P.O. 21 DE DICIEMBRE DE 2020)
 6. PERMISOS ESPECIALES.UMA
-I. Cuando se enajenen bebidas alcohólicas en envase cerrado con presentación de artesanía mexicana, denominados souvenirs;240.00
+(REFORMADO [N. DE E. REPUBLICADO], P.O. 18 DE DICIEMBRE DE 2025)
+I. Cuando se enajenen bebidas alcohólicas en
+envase cerrado con presentación de
+artesanía mexicana, denominados souvenirs;240.00
 (REFORMADA, P.O. 23 DE DICIEMBRE DE 2022)
 II. Por evento, por cada punto
 de venta80.00
