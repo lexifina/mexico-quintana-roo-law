@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE MARZO DE 2026)
+Artículo 11 Bis. La gestión de la demanda de movilidad busca reducir el uso de modos de transporte de carga y de personas pasajeras menos eficientes y fomentar los más sustentables y seguros. Las autoridades estatales y municipales deberán implementar medidas enfocadas en reducir emisiones y demás externalidades negativas previstas en esta Ley y la Ley de Acción de Cambio Climático en el Estado de Quintana Roo.

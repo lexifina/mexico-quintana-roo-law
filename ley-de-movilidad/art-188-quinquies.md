@@ -3,7 +3,6 @@ Artículo 188 Quinquies. Además de lo establecido en el artículo anterior, par
 I. La concesión, permiso o persona moral a la que está ligada la licencia de conducir para la prestación del servicio;
 II. El municipio donde el titular presta el servicio público o privado de transporte, y
 III. La demás información que se establezca en el Reglamento o determine el Instituto.
-TÍTULO QUINTO
-De la Supervisión
-CAPÍTULO PRIMERO
-Disposiciones Generales
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 5 DE MARZO DE 2026)
+Sección Tercera
+Registro Estatal de Infracciones

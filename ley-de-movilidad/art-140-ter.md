@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 5 DE MARZO DE 2026)
+Artículo 140 Ter. En caso de existir una diferencia o desacuerdo respecto al pago por kilómetro efectuado, las personas concesionarias podrán presentar una solicitud de aclaración en un plazo no mayor a cinco días hábiles contados a partir de la fecha en que se recibió dicho pago.
+El procedimiento tiene por objeto el esclarecimiento sobre los kilómetros en ruta o las posibles irregularidades por las cuales existieron deducciones en su pago.
+Las personas concesionarias podrán presentar las pruebas y los medios de convicción que estimen pertinentes para argumentar sus intereses.
+El Instituto realizará el procedimiento con las personas concesionarias tomando en cuenta el kilometraje programado contra el kilómetro en ruta y demás información que se obtenga del Centro de Control y Monitoreo.
+En caso de que la persona concesionaria comprobara de manera fehaciente algún error en los kilómetros en ruta o la no aplicabilidad de una deducción, se modificará a su favor el monto en la asignación al mes siguiente correspondiente. En caso de no comprobar la persona concesionaria el error, prevalecerá el resultado del cálculo de pago que dio origen a este artículo.

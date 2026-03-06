@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 5 DE MARZO DE 2026)
+Artículo 117 Ter. El tarjetón único de persona operadora es el documento de identificación que emite el Instituto o el Ayuntamiento, el cual reconoce a la persona operadora para prestar el servicio público de transporte de personas pasajeras y, se deberá registrar en el Registro Estatal de Personas Operadoras.
+Es obligación de la persona operadora y concesionaria mantener actualizado el expediente individual. El Instituto señalará, de manera periódica, la información del expediente necesaria para actualizar sus registros, en términos de los lineamientos que los regulen.
+El tarjetón único de persona operadora es intransferible y sus titulares serán responsables por el mal uso que se haga de él. Asimismo, tendrá una vigencia de un año y será susceptible de renovación, cubriendo el pago de los derechos que para ello correspondan y presentando el expediente individual actualizado en los términos de esta Ley.
+El trámite de renovación deberá solicitarse dentro de los 30 días previos al vencimiento del tarjetón mencionado con anterioridad.

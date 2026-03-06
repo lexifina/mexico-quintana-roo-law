@@ -4,3 +4,5 @@ I. Tramitación: El procedimiento mediante el cual la persona interesada se pres
 II. Expedición: Acto administrativo mediante el cual la autoridad competente, previo cumplimiento de los requisitos establecidos en la normatividad aplicable elabora el documento, en su versión física y/o digital, que acredita que la persona interesada está autorizada para la conducción de un vehículo motorizado.
 III. Administración de datos: El proceso de recopilación, almacenamiento, protección y uso de los datos.
 IV. Supervisión: Facultad exclusiva del Instituto a través de la cual vigila el cumplimiento de las obligaciones de las disposiciones relativas a las licencias o permisos de conducir establecidas en la Ley y su Reglamento.
+(ADICIONADO, P.O. 5 DE MARZO DE 2026)
+Los excedentes de permisos, derechos y demás aprovechamientos establecidos en el tabulador de ingresos propios que expida el Instituto, podrán ser destinados al Fideicomiso del SITQROO.

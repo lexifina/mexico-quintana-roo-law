@@ -1,0 +1,9 @@
+(ADICIONADO, P.O. 5 DE MARZO DE 2026)
+Artículo 139 Ter. El pago por kilómetro de vehículos diésel podrá actualizarse cada año a partir de la fecha de inicio de operaciones, siempre que durante dicho año no se lleve a cabo una revisión extraordinaria y como consecuencia se realice la actualización correspondiente.
+Las actualizaciones del pago por kilómetro se realizarán conforme a los incrementos que se señalan a continuación:
+[N. DE E. VÉASE FÓRMULA EN EL P.O. DE 5 DE MARZO DE 2026, PÁGINAS DE LA 115 A LA 116.]
+La actualización del pago por kilómetro se determina considerando, en primer lugar, las variables sujetas a inflación, que se ajustan con base en la inflación acumulada del año de referencia y del año anterior. A este ajuste se suma la variación anual ponderada de las variables no sujetas directamente a la inflación. Finalmente, se adicionan el costo financiero y el costo de mantenimiento general, los cuales permanecerán fijos durante toda la prestación del servicio. Así se obtiene el valor actualizado del pago por kilómetro.
+Esta actualización aplicará siempre que las condiciones financieras del instrumento legal para la operación financiera del sistema lo permitan, en caso contrario se aplicará un año de gracia para la actualización. Transcurrido el año de gracia, la actualización considerará el costo del diésel y el Índice Nacional de Precios al Consumidor de los dos años anteriores.
+Lo anterior se establecerá en las concesiones, las Condiciones Generales de Operación y los demás anexos a éstas que emita el Instituto.
+El pago por kilómetro, y el kilometraje programado, podrán modificarse durante la vigencia de la concesión, mediante la modificación de la concesión y los anexos, en los casos previstos en la ley.
+Para la actualización de los vehículos híbridos aplicará la misma fórmula de actualización del pago por kilómetro de vehículos diésel.

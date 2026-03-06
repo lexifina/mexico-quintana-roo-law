@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE MARZO DE 2026)
+Artículo 188 Sexies. El Registro Estatal de Infracciones se conformará por el conjunto de datos, archivos y registros relativos a las infracciones y faltas administrativas y/o infracciones vinculadas a la movilidad, cometidas por las personas conductoras y/o propietarias de vehículos, elaborado por el Instituto en coordinación con las autoridades estatales y municipales correspondientes, de conformidad con la presente Ley y su Reglamento.

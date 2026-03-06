@@ -1,0 +1,10 @@
+(ADICIONADO, P.O. 5 DE MARZO DE 2026)
+Artículo 133 Quáter. Además de las obligaciones previstas en el artículo 117 de esta Ley, son obligaciones específicas de las personas concesionarias del servicio de transporte público de personas pasajeras adheridas al SITQROO, las siguientes:
+I. Realizar los trámites administrativos necesarios para darse de alta como fideicomisarios y adherirse al fideicomiso público para la operación financiera del sistema y permanecer en él hasta el término de la concesión;
+II. Permitir en el fideicomiso público para la operación financiera del sistema, la afectación de los bienes y derechos inherentes a la concesión, previa autorización por escrito del Instituto;
+III. Aceptar las deducciones que aplique el Instituto derivado del incumplimiento de la Ley, de lo estipulado en la concesión, su renovación, modificación y anexos, el programa de operación y demás disposiciones legales y lineamientos aplicables;
+IV. Utilizar en los vehículos destinados al servicio de transporte, la imagen institucional que determine el Instituto. La persona concesionaria será responsable de la alteración de la imagen institucional cuando por su culpa o negligencia haya sido alterada;
+V. Mantener los vehículos destinados al servicio concesionado, en los patios de encierro autorizados por el Instituto, cuando no se encuentren prestando el servicio;
+VI. Contar con patios de encierro y talleres, que estarán equipados con áreas administrativas para las personas operadoras, estacionamiento, limpieza de los vehículos y talleres de mantenimiento. El espacio de estos locales será proporcional al número de vehículos que se pretenda introducir a éstos, conforme a las disposiciones que el Instituto emita para tal efecto;
+VII. Cubrir en tiempo y forma las rutas que determine su concesión, en el entendido de que éstas podrán variar en función de la demanda de las personas usuarias, con base en la evaluación que realice el Instituto, y
+VIII. Las demás que señalen esta Ley, la propia concesión, su renovación, modificación, anexos, el programa de operación y demás disposiciones legales y lineamientos aplicables.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE MARZO DE 2026)
+Artículo 11 Quáter. Las autoridades en materia de movilidad y seguridad vial, en el ámbito de sus competencias y de conformidad con lo establecido en las leyes en la materia y en el ámbito de sus facultades, podrán considerar la implementación de los instrumentos económicos y financieros, públicos y privados, de carácter estatal, nacional o internacional necesarios para mejorar la eficiencia y equidad en el acceso de los sistemas de movilidad, la gestión de la seguridad vial y la sostenibilidad.
