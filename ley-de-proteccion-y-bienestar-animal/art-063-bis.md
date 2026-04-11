@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE ABRIL DE 2026)
+Artículo 63 Bis. Con el fin de regular la tenencia responsable de los animales, los municipios del Estado de Quintana Roo, deberán implementar los Registros Municipales de Ejemplares Caninos Sujetos a Manejo Especial, como instrumentos administrativos de identificación y seguimiento, destinados a la protección de la integridad de las personas, la salubridad pública y el bienestar animal.

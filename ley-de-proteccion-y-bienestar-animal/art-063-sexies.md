@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 10 DE ABRIL DE 2026)
+Artículo 63 Sexies. Cuando un ejemplar canino inscrito en el Registro Municipal de Ejemplares Caninos Sujetos a Manejo Especial cause lesiones, daño o la muerte a otro animal doméstico de compañía, como consecuencia de la omisión en las medidas de control, custodia o manejo responsable por parte de su persona propietaria o poseedora, ésta será sancionada por la autoridad municipal competente, conforme a lo dispuesto en la presente Ley, su reglamento y demás disposiciones aplicables.
+Lo anterior, sin perjuicio de la responsabilidad civil o penal que, en su caso, pudiera generarse.
