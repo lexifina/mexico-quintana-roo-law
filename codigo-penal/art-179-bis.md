@@ -1,5 +1,7 @@
 (REFORMADO PRIMER PÁRRAFO, P.O. 18 DE DICIEMBRE DE 2023)
 ARTICULO 179-BIS.- Al que injustificada e intencionalmente realice actos de crueldad en contra de cualquier especie animal, causándole maltrato evidente, pero que no pongan en peligro la vida del animal, y que puedan ocasionar un daño permanente se le impondrá de uno a cinco años de prisión y de cincuenta a cien días multa.
+(ADICIONADO, P.O. 10 DE ABRIL DE 2026)
+Se aplicará la misma pena a la persona propietaria y/o quien tenga bajo su cuidado algún animal, cuando lo instigue, incite, provoque o lo suelte y a consecuencia cause lesiones a otro animal.
 (ADICIONADO, P.O. 14 DE JUNIO DE 2013)
 Si las lesiones ponen en peligro la vida del animal se incrementarán en una mitad de la pena señalada.
 (ADICIONADO, P.O. 13 DE JULIO DE 2023)

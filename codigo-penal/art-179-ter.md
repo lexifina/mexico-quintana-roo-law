@@ -1,5 +1,7 @@
 (REFORMADO PRIMER PÁRRAFO, P.O. 18 DE DICIEMBRE DE 2023)
 ARTICULO 179-TER.- Al que injustificada e intencionalmente cometa actos de maltrato o crueldad en contra de cualquier especie animal provocándole la muerte, se le impondrán de cuatro a seis años de prisión y de doscientos a cuatrocientos días multa, así como el aseguramiento de todos los animales que pudiera tener bajo su cuidado o resguardo, de conformidad a lo dispuesto en la Ley de Protección y Bienestar Animal del Estado de Quintana Roo.
+(ADICIONADO, P.O. 10 DE ABRIL DE 2026)
+Se aplicará la misma pena a la persona propietaria y/o quien tenga bajo su cuidado algún animal, cuando lo instigue, incite, provoque o lo suelte y como consecuencia cause la muerte de otro animal.
 (ADICIONADO, P.O. 14 DE JUNIO DE 2013)
 En caso de que se haga uso de métodos que provoquen un grave sufrimiento al animal previo a su muerte, las penas se aumentarán en una mitad.
 (ADICIONADO, P.O. 14 DE JUNIO DE 2013)
