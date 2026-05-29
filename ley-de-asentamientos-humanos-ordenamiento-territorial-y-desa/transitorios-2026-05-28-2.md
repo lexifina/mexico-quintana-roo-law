@@ -1,0 +1,7 @@
+P.O. 28 DE MAYO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NUMERO: 236 POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE ASENTAMIENTOS HUMANOS, ORDENAMIENTO TERRITORIAL Y DESARROLLO URBANO DEL ESTADO DE QUINTANA ROO Y LA LEY DE ACCIONES URBANÍSTICAS DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo;
+SEGUNDO. Los procedimientos relacionados con el derecho de preferencia que se encuentren en trámite a la entrada en vigor del presente decreto se sujetarán a los plazos y reglas vigentes al momento de su inicio.
+TERCERO. Las Constancias de Zonificación expedidas con anterioridad a la entrada en vigor del presente decreto, conservarán su vigencia en los términos en que fueron otorgadas salvo que se actualicen los programas municipales a que se refiere el artículo 31 de esta Ley o que el propio instrumento establezca condiciones distintas conforme a la normativa aplicable.
+CUARTO. El Poder Ejecutivo del Estado contará con un plazo de ciento ochenta días naturales, contados a partir de la entrada en vigor del presente decreto para realizar las adecuaciones correspondientes y, en su caso, expedir las disposiciones reglamentarias necesarias para su correcta implementación y aplicación.
+QUINTO. Se derogan todas aquellas disposiciones que se opongan al contenido del presente decreto.
