@@ -1,12 +1,1 @@
-(ADICIONADO, P.O. 3 DE OCTUBRE DE 2023)
-Artículo 284 Septies. Las personas postuladas por la vía de reelección a cargos de diputaciones y que no se separen del cargo, no podrán realizar actos de campaña durante las actividades y demás eventos relacionados con las funciones propias de su encargo. De igual forma, deberán atender las siguientes disposiciones:
-I. No deberán dejar de acudir a las sesiones o reuniones del órgano legislativo por realizar actos de campaña;
-II. No deberán realizar actos de campaña en días y horas hábiles propias de su encargo;
-III. No deberán ausentarse de las actividades propias de su encargo para hacer precampaña y campaña;
-IV. En el desempeño de sus funciones como diputada o diputado, tienen estrictamente prohibido llamar al voto, hacer actos de proselitismo o en su caso emitir opinión a favor o en contra de algún partido político, coalición o candidatura alguna;
-V. No deberán utilizar recursos públicos, ya sea humanos, materiales o económicos que le correspondan para el ejercicio de su encargo, con la finalidad de salvaguardar los principios de neutralidad y equidad en la contienda;
-VI. No deberán utilizar recursos públicos a los que tienen acceso derivado del cargo que ocupan para el financiamiento de las precampañas o campañas o cualquier otra etapa del proceso electoral o actividad que promuevan su imagen o bien, que perjudiquen a candidatas y candidatos que aspiren a algún cargo de elección popular;
-VII. No deberán hacer uso de los tiempos de radio y televisión que contrate el Congreso local para fines de difusión oficial, ni utilizar los portales de internet y redes sociales de dependencias gubernamentales para promover su imagen y el voto a su favor o bien, para afectar la imagen de otra candidatura a cargo de elección popular, partidos políticos, coaliciones y candidaturas comunes e independientes;
-VIII. No deberán comisionar ni permitir ausencias del personal en días y horas hábiles para llevar a cabo labores de logística y proselitismo en favor de su candidatura ni en perjuicio de otra candidata o candidato que aspire a algún cargo de elección popular, partidos políticos, coaliciones y candidaturas comunes e independientes;
-IX. No deberán condicionar los apoyos o gestiones a cambio de obtener votos o simpatizantes, y
-X. No deberán retener la credencial para votar como condición para la entrega de apoyos o gestiones en dinero, especie u otras.
+Artículo 284 Septies. (DEROGADO, P.O. 29 DE MAYO DE 2026)

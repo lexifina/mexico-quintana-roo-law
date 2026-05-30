@@ -1,11 +1,1 @@
-(ADICIONADO, P.O. 3 DE OCTUBRE DE 2023)
-Artículo 284 Quáter. Quienes hayan manifestado su interés en la reelección a cargos de presidencias municipales, sindicaturas y regidurías de los Ayuntamientos, que optaren por no separarse del cargo, no deberán realizar actos de campaña durante las actividades y demás eventos relacionados con las funciones propias de su encargo. De igual forma, deberán de atender las siguientes disposiciones:
-I. No deberán dejar de acudir a las sesiones o reuniones del Ayuntamiento por realizar actos de campaña;
-II. No deberán utilizar recursos públicos ya sea humanos, materiales o económicos que le correspondan para el ejercicio de su encargo, con la finalidad de salvaguardar los principios de neutralidad y equidad;
-III. No deberán hacer uso de los tiempos en radio y televisión que contrate el Ayuntamiento para fines de difusión oficial, ni utilizar los portales de internet y redes sociales de dependencias gubernamentales para promover su imagen y el voto a su favor o bien, para afectar la imagen de otra candidata o candidato a cargo de elección popular, partidos políticos, coaliciones y candidaturas independientes;
-IV. No deberán comisionar ni permitir ausencias del personal a su cargo en días y horas hábiles para llevar a cabo labores de logística y proselitismo en favor de su candidatura ni en perjuicio de otra candidata o candidato que aspire a algún cargo de elección popular, partidos políticos, coaliciones y candidaturas independientes;
-V. No deberán celebrar, ni participar en eventos masivos en donde se realice entrega de programas sociales y entrega de obra pública que afecten el principio de la equidad en la contienda electoral;
-VI. Se deberán abstener de la utilización de vehículos oficiales para el traslado de personal y logística con fines propagandísticos a favor de su candidatura o en perjuicio de cualquiera de sus contendientes, partidos políticos, coaliciones y candidaturas independientes;
-VII. No deberán condicionar la entregar de programas sociales de índole federal, estatal o municipal, ya sea en dinero, especie o realización de obras o suspensión de estas;
-VIII. No deberán retener la credencial para votar como condición para la entrega de programas sociales en dinero, especie u otras, y
-IX. Deberán cumplir con las obligaciones inherentes a su encargo.
+Artículo 284 Quáter. (DEROGADO, P.O. 29 DE MAYO DE 2026)

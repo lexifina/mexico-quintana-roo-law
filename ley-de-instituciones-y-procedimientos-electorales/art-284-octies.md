@@ -1,4 +1,1 @@
-(ADICIONADO, P.O. 3 DE OCTUBRE DE 2023)
-Artículo 284 Octies. Adicional a lo dispuesto en los artículos anteriores, las candidaturas deberán de atender las disposiciones previstas en la Constitución Federal y Constitución Local, así como las establecidas en los ordenamientos electorales en materia de uso de recursos públicos.
-La aplicación de tales recursos públicos deberá ser e (sic) conformidad con lo establecido en los párrafos séptimo y octavo del artículo 134 de la Constitución Federal. Esto es aplicar con imparcialidad los recursos públicos que están bajo su responsabilidad, sin influir en la equidad de la competencia entre los partidos políticos y en consecuencia no obtener una ventaja indebida respecto a las demás personas contendientes en el proceso electoral.
-El incumplimiento de las condiciones que preceden será sancionado conforme a lo establecido en la Constitución Federal, Constitución Local, la Ley y demás disposiciones normativas aplicables en materia de responsabilidad administrativa.
+Artículo 284 Octies. (DEROGADO, P.O. 29 DE MAYO DE 2026)

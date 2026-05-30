@@ -1,6 +1,1 @@
-(ADICIONADO, P.O. 3 DE OCTUBRE DE 2023)
-Artículo 284 Ter. En caso de proceder el registro de la candidatura que corresponda vía reelección, las y los integrantes de los Ayuntamientos, en su calidad de candidata o candidato deberán observar lo siguiente:
-I. Las y los integrantes de los Ayuntamientos con intención de reelección podrán continuar desempeñando sus funciones y cargos durante todas las etapas del proceso electoral o bien, podrán separarse del cargo, quedando en todos los casos como discrecional el ejercicio de ese derecho.
-II. Las y los integrantes de los Ayuntamientos que deseen buscar la reelección, deberán de notificar al Instituto con veinticuatro horas de antelación al inicio del periodo de campañas, si permanecerá (sic) desempeñando las funciones de su encargo o bien, optará (sic) por la separación.
-III. En caso de optar por separarse del cargo, deberá hacerse del conocimiento del Instituto, mediante oficio que remita a la Dirección respectiva de su Junta General, el partido que haya postulado la candidatura, a través de su representante ante el Consejo General, en un término de veinticuatro horas contadas a partir de la presentación de la licencia correspondiente por parte del órgano competente para el efecto.
-IV. Las personas integrantes de los Ayuntamientos con intenciones de postularse por reelección que se hayan separado del cargo estarán sujetas a lo establecido en la Ley de los Municipios del Estado de Quintana Roo y las disposiciones de la materia electoral.
+Artículo 284 Ter. (DEROGADO, P.O. 29 DE MAYO DE 2026)
