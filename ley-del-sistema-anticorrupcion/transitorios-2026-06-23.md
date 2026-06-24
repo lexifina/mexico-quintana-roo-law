@@ -1,0 +1,20 @@
+P.O. 23 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 242 POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DEL SISTEMA ANTICORRUPCIÓN DEL ESTADO DE QUINTANA ROO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Quintana Roo.
+SEGUNDO. Dentro de los treinta días hábiles siguientes a la entrada en vigor del presente decreto, la Legislatura del Estado, a través de la Comisión Anticorrupción, Participación Ciudadana y Órganos Autónomos, expedirá la convocatoria para la selección e integración de las personas que conformarán la Comisión de Selección, misma que tendrá a su cargo la designación de las personas integrantes del Comité de Participación Ciudadana.
+Las personas postulantes deberán satisfacer los requisitos establecidos en el artículo 18 de la Ley del Sistema Anticorrupción del Estado de Quintana Roo.
+TERCERO. Por única ocasión, las personas integrantes de la Comisión de Selección que sean designadas, en términos de lo establecido en el transitorio segundo, ejercerán su encargo por el periodo restante de la actual XVIII Legislatura del Estado. Concluido dicho plazo, la integración y duración de la Comisión de Selección se sujetarán a lo dispuesto en el artículo 18 de la Ley del Sistema Anticorrupción del Estado de Quintana Roo.
+CUARTO. Dentro de los treinta días hábiles siguientes a la publicación en el Periódico Oficial del Estado de Quintana Roo de la designación de las personas integrantes de la Comisión de Selección, esta Comisión deberá expedir la convocatoria para la selección de las personas integrantes del Comité de Participación Ciudadana, en los términos establecidos en el articulo 18 de la Ley del Sistema Anticorrupción del Estado de Quintana Roo.
+QUINTO. Por única ocasión la Comisión de Selección, designará a las personas integrantes del Comité de Participación Ciudadana, en los términos siguientes:
+a) Una persona integrante que durará en su encargo un año;
+b) Una persona integrante que durará en su encargo dos años;
+c) Una persona integrante que durará en su encargo tres años;
+d) Una persona integrante que durará en su encargo cuatro años, y
+e) Una persona integrante que durará en su encargo cinco años.
+SEXTO. Por única ocasión, el orden de prelación para la representación del Comité de Participación Ciudadana en el Comité Coordinador Estatal, será definido en la sesión de instalación mediante acuerdo adoptado por mayoría de votos de sus personas integrantes.
+Con el objeto de preservar el carácter escalonado de la renovación del cargo y garantizar la rotación de la representación ante el mismo, en dicho acuerdo se establecerá el orden sucesivo en que cada persona integrante será representante.
+SÉPTIMO. Las personas integrantes de la Comisión de Selección, así como las personas integrantes del Comité de Participación Ciudadana que se encuentren en funciones a la entrada en vigor del presente decreto, continuarán en el ejercicio de su encargo hasta en tanto se lleven a cabo los nuevos nombramientos conforme al presente instrumento. Sus contratos quedarán sin efectos a partir del momento en que se realicen las nuevas designaciones.
+En el caso de las personas integrantes del Comité de Participación Ciudadana, éstas recibirán las remuneraciones que correspondan, conforme a la naturaleza jurídica de sus respectivos contratos y en términos de las disposiciones aplicables.
+OCTAVO. Los lineamientos para la contratación de las personas integrantes del Comité de Participación Ciudadana deberán ser expedidos dentro de los sesenta días hábiles siguientes a la entrada en vigor del presente decreto.
+NOVENO. La Secretaría Ejecutiva del Sistema Anticorrupción del Estado de Quintana Roo deberá realizar las adecuaciones necesarias a su normativa interna para dar cumplimiento a lo dispuesto en este decreto.
+DÉCIMO. Se derogan todas las disposiciones de igual o menor jerarquía que contravengan lo establecido en el presente decreto.

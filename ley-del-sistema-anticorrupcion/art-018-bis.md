@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 29 DE MAYO DE 2021)
-Artículo 18 Bis. En caso de que se generen vacantes en el Comité de Participación Ciudadana, por ausencia definitiva, renuncia o actualizarse la prohibición descrita en el artículo 16 de esta ley, la Comisión de Selección iniciará el proceso de selección para cubrir la o las vacantes, la duración de este proceso, no podrá exceder de noventa días y el ciudadano que resulte electo desempeñará el cargo por el tiempo restante de la vacante a ocupar.
+(REFORMADO, P.O. 23 DE JUNIO DE 2026)
+Artículo 18 Bis. En caso de que se generen vacantes en el Comité de Participación Ciudadana, por ausencia definitiva, renuncia o actualizarse la prohibición descrita en el artículo 16 de esta Ley, la Comisión de Selección iniciará el proceso de selección para cubrir la o las vacantes, la duración de este proceso, no podrá exceder de noventa días y la persona que resulte electa desempeñará el cargo por el tiempo restante de la vacante a ocupar.
