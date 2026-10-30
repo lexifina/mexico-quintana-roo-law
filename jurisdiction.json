@@ -1,0 +1,11 @@
+{
+  "path": "mx-roo",
+  "code": "MX-ROO",
+  "name": "Quintana Roo",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-quintana-roo-law",
+  "build": "built: constitution, codes and laws (140 ordenamientos, 1206 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
