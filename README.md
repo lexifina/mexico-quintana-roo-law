@@ -1,5 +1,7 @@
 # Quintana Roo: law history in git
 
+Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is the law of Quintana Roo, Mexico, which global-law reads at `mexico/quintana-roo/acts/`.
+
 The law of the State of Quintana Roo (Estado Libre y Soberano de Quintana Roo, Mexico) as a git history: one file per article, one commit per publication that changed it, dated the day it took effect, with the decree as the commit's author. `git blame` names the decree behind every paragraph; `git log` lists every change to an article; checking out a date gives the text in force that day.
 
 It follows the shared design of [lexifina/global-law](https://github.com/lexifina/global-law), which places it at `mx-roo/`. Mexico's federal law is in [lexifina/mexico-law](https://github.com/lexifina/mexico-law).
